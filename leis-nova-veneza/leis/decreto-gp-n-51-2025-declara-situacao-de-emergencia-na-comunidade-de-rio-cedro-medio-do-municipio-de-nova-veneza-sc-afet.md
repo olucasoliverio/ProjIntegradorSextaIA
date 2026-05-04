@@ -1,0 +1,14 @@
+# DECRETO GP Nº 51, DE 10 DE JUNHO DE 2025.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 11/06/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2025/6/51/decreto-gp-n-51-2025-declara-situacao-de-emergencia-na-comunidade-de-rio-cedro-medio-do-municipio-de-nova-veneza-sc-afetada-por-estiagem-cobrade-14110-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 51, DE 10 DE JUNHO DE 2025. "DECLARA SITUAÇÃO DE EMERGÊNCIA NA COMUNIDADE DE RIO CEDRO MÉDIO DO MUNICÍPIO DE NOVA VENEZA/SC, AFETADA POR ESTIAGEM (COBRADE-1.4.1.10), E DÁ OUTRAS PROVIDÊNCIAS."ANGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, SC, usando das atribuições legais que lhe são conferidas pela Lei Orgânica Municipal e;CONSIDERANDO a situação climática atual que afeta o Município, caracterizada por uma prolongada estiagem que vem comprometendo o abastecimento de água potável, a produção agrícola, pecuária e outras atividades essenciais;CONSIDERANDO os relatórios técnicos elaborados pela Defesa Civil Municipal e demais órgãos competentes, que atestam a gravidade da situação e recomendam a adoção de medidas emergenciais;CONSIDERANDO o disposto no Decreto Federal nº 10.593, de 24 de dezembro de 2020, que regulamenta o reconhecimento federal de situação de emergência e estado de calamidade pública, e na Instrução Normativa nº 36/2020 da Secretaria Nacional de Proteção e Defesa Civil;CONSIDERANDO que o evento de estiagem está classificado com o código COBRADE 1.4.1.10, DECRETA:Art. 1º Fica declarada SITUAÇÃO DE EMERGÊNCIA na comunidade do Rio Cedro Médio, do Município de Nova Veneza/SC, afetada por estiagem (COBRADE 1.4.1.10), em decorrência da severa redução dos níveis de precipitação pluviométrica e do comprometimento do abastecimento de água e das atividades econômicas locais.Art. 2º Autoriza-se a mobilização de todos os órgãos municipais para atuarem, sob a coordenação da Defesa Civil Municipal, nas ações de pronta resposta.Art. 3º De acordo com o previsto no art. 75, VIII, da Lei Federal nº 14.133/2021, fica autorizada, durante a vigência desta situação de emergência, a dispensa de licitação para a aquisição de bens e serviços necessários ao atendimento da situação emergencial.Art. 4º Este Decreto terá vigência de 180 (cento e oitenta) dias, a contar da data de sua publicação.Art. 5º Este Decreto entra em vigor na data de sua publicação.Nova Veneza, SC, 10 de junho de 2025.ANGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicado e Registrado em 10 de junho de 2025ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

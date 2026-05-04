@@ -1,0 +1,13 @@
+# LEI Nº 3.181, DE 03 DE DEZEMBRO DE 2025.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 05/12/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2025/319/3181/lei-ordinaria-n-3181-2025-autoriza-o-poder-executivo-a-contratar-operacao-de-credito-com-a-instituicao-financeira-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 3.181, DE 03 DE DEZEMBRO DE 2025. "AUTORIZA O PODER EXECUTIVO A CONTRATAR OPERAÇÃO DE CRÉDITO COM A INSTITUIÇÃO FINANCEIRA, E DÁ OUTRAS PROVIDÊNCIAS."A PREFEITA MUNICIPAL DE NOVA VENEZA - SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ela sanciona a seguinte Lei:Art. 1º Fica o Poder Executivo autorizado a contratar operação de crédito junto à Agência de Fomento do Estado de Santa Catarina - BADESC, até o valor de R$ 6.000.000,00 (seis milhões de reais), no âmbito do PROGRAMA ESTRADA BOA RURAL, nos termos da Lei nº 19.379, DE 18 DE JULHO DE 2025, destinados à pavimentação asfáltica de ruas, observada a legislação vigente, em especial as disposições da Lei Complementar nº 101, de 04 de maio de 2000.Art. 2º Para pagamento do principal, juros, tarifas bancárias e outros encargos da operação de crédito, fica a Chefe do Poder Executivo autorizada a vincular em garantia de pagamento da operação de crédito, em caráter irrevogável e irretratável, as quotas-partes de receitas advindas do ICMS, ou de receitas cujas fontes estas venham a substituir.Art. 3º Os recursos provenientes da operação de crédito a que se refere esta Lei deverão ser consignados como receita no Orçamento ou em créditos adicionais, nos termos do inc. II, § 1º, art. 32, da Lei Complementar 101/2000.Art. 4º Os orçamentos ou os créditos adicionais deverão consignar as dotações necessárias às amortizações e aos pagamentos dos encargos anuais, relativos aos contratos de financiamento a que se refere o artigo primeiro.Art. 5º Fica o Chefe do Poder Executivo autorizado a abrir créditos adicionais destinados a fazer face aos pagamentos de obrigações decorrentes da operação de crédito ora autorizada.Art. 6º Esta Lei entra em vigor na data de sua publicação, revogadas as disposições constantes.Nova Veneza - SC, 03 de dezembro de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicada e registrada em 03 de dezembro de 2025.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,13 @@
+# DECRETO SAF Nº 69, DE 17 DE DEZEMBRO DE 2025.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 18/12/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2025/7/69/decreto-saf-n-69-2025-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-de-cultura-esporte-e-turismo-credito-suplementar-no-valor-de-r-619000-00-por-conta-de-provavel-excesso-de-arrecadacao-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 69, DE 17 DE DEZEMBRO DE 2025."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA DE CULTURA, ESPORTE E TURISMO, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 619.000,00, POR CONTA DE PROVÁVEL EXCESSO DE ARRECADAÇÃO, E DÁ OUTRAS PROVIDÊNCIAS."ANGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 9º., inciso I, da Lei Municipal nº 3.116, de 28 de novembro de 2024, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 3.116, de 28 de novembro de 2024), em favor da Secretaria de Cultura, Esporte e Turismo, crédito suplementar no valor de R$ 619.000,00 (seiscentos e dezenove mil reais), por conta do provável excesso de arrecadação, para atender a programação abaixo discriminada:Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA  09.000 - SECRETARIA DE CULTURA, ESPORTE E TURISMO  09.001 - DEPTO. DE CULTURA, ESPORTES E TURISMO  9 - TURISMO, CULTURA E ESPORTE INTEGRADOS  27.812 - Desporto e Lazer / Desporto Comunitário  1.021 - CONSTRUÇÃO E AMPLIAÇÃO DE EQUIPAMENTOS ESPORTIVOS  55 - 4.4.90.00.00.00.00.00 - APLICAÇÕES DIRETAS - 1.701.0000.0064TRANSFERÊNCIA DE CONVÊNIOS ESTADO/OUTROS....R$ 619.000,00  Parágrafo único. A contratação de despesas por conta do provável excesso de arrecadação referente ao Relatório da Transferência 2025EP002782 (R$ 199.000,00); Relatório da Transferência 2025EP002223 (R$ 150.000,00); e SCC 12856/2025 (R$ 270.000,00), de que trata este artigo, fica condicionada e limitada ao efetivo ingresso dos recursos nas contas bancárias correspondentes.Art. 2º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário, em especial o Decreto SAF nº 068, de 15 de dezembro de 2025.Nova Veneza, SC, 17 de dezembro de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicado e registrado em 17 de dezembro de 2025.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

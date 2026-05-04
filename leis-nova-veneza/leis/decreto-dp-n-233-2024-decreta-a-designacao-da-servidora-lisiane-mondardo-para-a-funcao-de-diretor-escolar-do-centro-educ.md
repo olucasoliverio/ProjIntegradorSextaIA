@@ -1,0 +1,14 @@
+# DECRETO DP Nº 233, DE 04 DE ABRIL DE 2024.
+
+**Tipo:** DECRETO DP Nº
+**Número:** 
+**Data:** 29/04/2024
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-dp/2024/24/233/decreto-dp-n-233-2024-decreta-a-designacao-da-servidora-lisiane-mondardo-para-a-funcao-de-diretor-escolar-do-centro-educacional-rosa-macarini-spillere
+
+## Texto Completo
+
+DECRETO DP Nº 233, DE 04 DE ABRIL DE 2024.Decreta a Designação da servidora, LISIANE MONDARDO, para a Função de Diretor Escolar do Centro Educacional Rosa Macarini Spillere.ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no exercício de suas atribuições conferidas pela Lei Orgânica do Município e em conformidade com o Decreto nº 50, de 13 de outubro de 2022, e;Considerando a inauguração da nova escola denominada Centro Educacional Rosa Macarini Spillere;Considerando o Decreto nº 50, de 13 de outubro de 2022, que regula a Gestão Democrática nas Unidades de Ensino;Considerando que, à época do Edital de Processo de Seleção para a função de Diretor de Escola, a referida unidade escolar ainda não havia concluído sua construção;Considerando a inviabilidade de um novo processo seletivo, dadas as restrições temporais estabelecidas no inciso III do art. 5º e no §3º do art. 4º do Decreto 50/2022, que determinam que nenhum mandato do cargo de Diretor de Escola ultrapassará o dia 31/12 do último ano do mandato do Prefeito que realizou a nomeação, sob pena de interrupção imediata do mesmo;Considerando que o Diretor Escolar é o principal responsável pela implementação eficaz da política educacional do sistema e pelo pleno desenvolvimento dos objetivos educacionais, sendo indispensável a presença desse gestor na unidade escolar, DECRETA:Art. 1º Fica designada a servidora, LISIANE MONDARDO, ocupante do cargo em provimento efetivo, para a função de Diretor Escolar do Centro Educacional Rosa Macarini Spillere, com carga horaria de 40 (quarenta) horas semanais percebendo a gratificação de 35%, conforme estabelecido no art. 38 da Lei nº 1.416, de 29 de dezembro de 1999, com Redação dada pela Lei nº 1.658/2003.Art. 2º A designada fica compelida a exercer as atribuições concernentes à gestão democrática, conforme estipulado no art. 11 do Decreto 50/2022, que regulamenta a gestão democrática nas unidades de ensino da rede pública municipal de Nova Veneza/SC.Art. 3º Este Decreto entra em vigor na data de sua assinatura, condicionada a sua validade a publicação no DOM/SC.Art. 4º Revogam-se as disposições em contrário em especial o Decreto nº 055 de 01 de fevereiro de 2018.Nova Veneza/SC, 04 de abril de 2024.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e Registrada em 04 de abril de 2024.SILVANA GHELLERE MILANEZSecretária Municipal de Educação
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

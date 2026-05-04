@@ -1,0 +1,13 @@
+# DECRETO GP Nº 98, DE 10 DE DEZEMBRO DE 2025.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 24/12/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2025/10/98/decreto-gp-n-98-2025-estabelece-horario-especial-de-final-de-ano-e-decreta-ponto-facultativo-para-os-orgaos-e-entidades-da-administracao-direta-e-indireta-do-poder-executivo-municipal-de-nova-veneza-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 98, DE 10 DE DEZEMBRO DE 2025. "ESTABELECE HORÁRIO ESPECIAL DE FINAL DE ANO E DECRETA PONTO FACULTATIVO PARA OS ÓRGÃOS E ENTIDADES DA ADMINISTRAÇÃO DIRETA E INDIRETA DO PODER EXECUTIVO MUNICIPAL DE NOVA VENEZA, E DÁ OUTRAS PROVIDÊNCIAS."ÂNGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município;CONSIDERANDO que o dia 25 (vinte e cinco) de dezembro é feriado dedicado à celebração do Natal e que no ano de 2025 recairá em uma quinta-feira;CONSIDERANDO que o dia 01 (um) de janeiro é dedicado ao feriado nacional de Confraternização Universal, e que no ano de 2026 recairá em uma quinta-feira;CONSIDERANDO a conveniência administrativa e organizacional, e a necessidade de proporcionar melhor aproveitamento do tempo e planejamento aos servidores do Poder Executivo Municipal de Nova Veneza;CONSIDERANDO a autonomia administrativa do Poder Executivo Municipal de Nova Veneza para dispor sobre a organização e funcionamento de seus serviços, DECRETA:Art. 1º Ficam instituídos os horários de funcionamento e pontos facultativos dos órgãos e entidades da Administração Direta e Indireta do Poder Executivo Municipal de Nova Veneza, nos seguintes termos:  I - Dia 24/12/2025 (quarta-feira, véspera de Natal), das 8h00 às 12h00;  II - Dia 24/12/2025 (quarta-feira, véspera de Natal), no período vespertino, ponto facultativo;  III - Dia 26/12/2025 (sexta-feira), ponto facultativo;  IV - Dia 31/12/2025 (quarta-feira, véspera de Ano Novo), das 8h00 às 12h00;  V - Dia 31/12/2025 (quarta-feira, véspera de Ano Novo), no período vespertino, ponto facultativo;  VI - Dia 02/01/2026 (sexta-feira), ponto facultativo;Art. 2º Este Decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza, SC, 10 de dezembro de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicado e Registrado em 10 de dezembro de 2025.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

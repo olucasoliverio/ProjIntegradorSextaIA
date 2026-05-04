@@ -1,0 +1,14 @@
+# LEI Nº 3.166, DE 11 DE NOVEMBRO DE 2025.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 12/11/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2025/317/3166/lei-ordinaria-n-3166-2025-autoriza-a-doacao-de-veiculo-do-municipio-de-nova-veneza-sc-ao-estado-de-santa-catarina-por-intermedio-do-fundo-de-melhoria-dos-corpos-de-bombeiros-militares-fumcbm-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 3.166, DE 11 DE NOVEMBRO DE 2025.AUTORIZA A DOAÇÃO DE VEÍCULO DO MUNICÍPIO DE NOVA VENEZA/SC, AO ESTADO DE SANTA CATARINA, POR INTERMÉDIO DO FUNDO DE MELHORIA DOS CORPOS DE BOMBEIROS MILITARES (FUMCBM) E DÁ OUTRAS PROVIDÊNCIAS.A PREFEITA MUNICIPAL DE NOVA VENEZA - SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ela sanciona a seguinte Lei:Art. 1º Fica o Poder Executivo autorizado a doar ao Estado de Santa Catarina, por intermédio do Fundo de Melhoria dos Corpos de Bombeiros Militares - FUMCBM, CNPJ nº 14.186.135/0001-06, o seguinte bem móvel: um veículo Marca/Modelo VOLKSWAGEN FOX CONNECT 1.6, cor vermelha, ano/modelo 2018/2019, Placa QJE-7596, RENAVAM 116007923 e chassi 9BWAB45Z6K4007887.Art. 2º Para a aquisição do veículo de que trata o art. 1s foram utilizados recursos do Convênio nº 037/2013, firmado entre o município de Nova Veneza e o Corpo de Bombeiros Militar do estado de Santa Catarina, nos termos da Lei Municipal nº 2.646, de 11 de outubro de 2018.Art. 3º O veículo objeto da presente lei é destinado aos serviços de atendimento de demandas e demais diligências levadas a feito pelo 4º Grupo de Bombeiros Militar em Nova Veneza/SC.Art. 4º As despesas decorrentes da manutenção, conservação, licenciamento, seguro e de sua utilização, serão de responsabilidade do Corpo de Bombeiros Militar do estado de Santa Catarina, bem como, à conta das receitas provenientes de Convênio nº 037/2013, celebrado entre o Corpo de Bombeiros Militar do estado de Santa Catarina e o Município Nova Veneza.  Parágrafo único. O Corpo de Bombeiros Militar do estado de Santa Catarina ficará responsável pelo fornecimento do pessoal necessário à execução do serviço e pelo bom uso do veículo.Art. 5º As despesas decorrentes da execução da presente lei correrão por conta de dotação própria do orçamento do Estado de Santa Catarina.Art. 6º A presente lei entra em vigor na data de sua publicação, revogando-se as disposições em contrário.Nova Veneza - SC, 11 de novembro de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicada e registrada em 11 de novembro de 2025.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

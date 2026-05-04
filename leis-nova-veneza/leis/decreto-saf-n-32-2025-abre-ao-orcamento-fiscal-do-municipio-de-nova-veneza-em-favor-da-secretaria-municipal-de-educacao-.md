@@ -1,0 +1,14 @@
+# DECRETO SAF Nº 32, DE 11 DE AGOSTO DE 2025.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 12/08/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2025/4/32/decreto-saf-n-32-2025-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-educacao-credito-suplementar-no-valor-de-r-150000-00-por-conta-da-transposicao-de-recursos-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 32, DE 11 DE AGOSTO DE 2025."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE EDUCAÇÃO, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 150.000,00, POR CONTA DA TRANSPOSIÇÃO DE RECURSOS, E DÁ OUTRAS PROVIDÊNCIAS."ÂNGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com da Lei Municipal nº 3.138, de 30 de julho de 2025, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 3.138, de 30 de julho de 2025), em favor da Secretaria Municipal de Educação, crédito suplementar no valor de R$ 150.000,00 (cento e cinquenta mil de reais), por conta da anulação de saldo de dotação orçamentária, para atender a programação abaixo discriminada:Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA  07.001 - SECRETARIA DE EDUCAÇÃO / DEPARTAMENTO DE EDUCAÇÃO INFANTIL E FUNDAMENTAL  3 - CRIANÇA NA ESCOLA  12.367 - Educação / Educação Especial  2 .020 - MANUTENÇÃO DE OUTROS NIVEIS DE ENSINO  44 - 3.3.50.00.00.00.00.00 - TRANSFERÊNCIAS A INSTITUIÇÕES PRIVADAS SEM FINS LUCRATIVOS   1.500.1001.0001 - EDUCAÇÃO - 25% ARRECADAÇÃO DE IMPOSTOS R$ 150.000,00Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º. decorrem da anulação parcial da seguinte dotação orçamentária:Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA  07.001 - SECRETARIA DE EDUCAÇÃO / DEPARTAMENTO DE EDUCAÇÃO INFANTIL E FUNDAMENTAL  3 - CRIANÇA NA ESCOLA  12.365 - Educação / Educação Infantil  2 .018 - MANUTENÇÃO DAS CRECHESAplicação: 40 - 3.3.90.00.00.00.00.00 - APLICAÇÕES DIRETAS   1.500.1001.0001 - EDUCAÇÃO - 25% ARRECADAÇÃO DE IMPOSTOS R$ 150.000,00Art. 3º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 11 de agosto de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicado e Registrado em 11 de agosto de 2025.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

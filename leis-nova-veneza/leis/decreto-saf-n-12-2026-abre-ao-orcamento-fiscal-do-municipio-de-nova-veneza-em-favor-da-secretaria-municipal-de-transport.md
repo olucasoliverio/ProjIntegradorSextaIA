@@ -1,0 +1,14 @@
+# DECRETO SAF Nº 12, DE 19 DE JANEIRO DE 2026.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 21/01/2026
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2026/2/12/decreto-saf-n-12-2026-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-transportes-obras-e-servicos-urbanos-credito-especial-no-valor-de-r-150000-00-por-conta-de-provavel-excesso-de-arrecadacao-do-exercicio-de-2025-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 12, DE 19 DE JANEIRO DE 2026."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE TRANSPORTES, OBRAS E SERVIÇOS URBANOS, CRÉDITO ESPECIAL NO VALOR DE R$ 150.000,00, POR CONTA DE PROVÁVEL EXCESSO DE ARRECADAÇÃO DO EXERCÍCIO DE 2025, E DÁ OUTRAS PROVIDÊNCIAS."ÂNGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 3.189, de 17 de dezembro de 2025, DECRETA:Art. 1º Fica inserido elemento de despesa específico e fica aberto crédito especial ao Orçamento da Unidade Prefeitura Municipal de Nova Veneza (Lei Municipal nº 3.189, de 17 de dezembro de 2025), por conta do excesso de arrecadação do exercício em curso, na forma do artigo 43, II, da Lei Federal 4.320/64, no que se refere aos recursos vinculados e por conta de excesso de arrecadação, até o valor de R$ 150.000,00 (cento e cinquenta mil reais), conforme abaixo especificado:Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA  10.000 - SECRETARIA DE TRANSP. OBRAS E SERV. URB.  10.001 - DEPARTAMENTO DE ESTRADAS DE RODAGEM  6 - GESTÃO DOS SERVIÇOS PÚBLICOS  15.452 - Urbanismo / Serviços Urbanos  2.044 - MANUTENÇÃO E AMPLIAÇÃO DA ILUMINAÇÃO PÚBLICA  4.4.90.00.00.00.00.00 - APLICAÇÕES DIRETAS 1.701.0000.0064 - TRANSFERÊNCIA DE CONVÊNIOS ESTADO/OUTROS....R$ 150.000,00  Parágrafo único. A contratação de despesas por conta de provável Excesso de Arrecadação - SCC - 4205/2025 de que trata este artigo, fica condicionada e limitada ao efetivo ingresso dos recursos nas contas bancárias correspondentes.Art. 2º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 19 de janeiro de 2026.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicado e registrado em 19 de janeiro de 2026.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

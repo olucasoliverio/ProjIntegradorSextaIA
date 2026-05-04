@@ -1,0 +1,13 @@
+# DECRETO SAF Nº 56, DE 12 DE NOVEMBRO DE 2025.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 13/11/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2025/6/56/decreto-saf-n-56-2025-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-educacao-credito-suplementar-no-valor-de-r-220000-00-por-conta-da-transposicao-de-recursos-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 56, DE 12 DE NOVEMBRO DE 2025."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE EDUCAÇÃO, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 220.000,00, POR CONTA DA TRANSPOSIÇÃO DE RECURSOS, E DÁ OUTRAS PROVIDÊNCIAS."ÂNGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 3.169, de 11 de novembro de 2025, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 3.169, de 11 de novembro de 2025), em favor da Secretaria Municipal de Educação, crédito suplementar no valor de R$ 220.000,00 (duzentos e vinte mil reais), por conta da anulação de saldos de dotações orçamentárias, para atender a programação abaixo discriminada:Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA  07.001 - SECRETARIA DE EDUCAÇÃO / DEPARTAMENTO DE EDUCAÇÃO INFANTIL E FUNDAMENTAL  3 - CRIANÇA NA ESCOLA  12.367 - Educação / Educação Especial  2.020 - MANUTENÇÃO DE OUTROS NÍVEIS DE ENSINO  43 - 3.1.90.00.00.00.00.00 - Aplicações diretas 1.500.1001.0001 - EDUCAÇÃO - 25% ARRECADAÇÃO DE IMPOSTOS R$ 10.000,00  45 - 3.3.90.00.00.00.00.00 - Aplicações diretas 1.500.1001.0001 - EDUCAÇÃO - 25% ARRECADAÇÃO DE IMPOSTOS R$ 210.000,00Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º. decorrem da anulação parcial das seguintes dotações orçamentárias:Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA  07.001 - SECRETARIA DE EDUCAÇÃO / DEPARTAMENTO DE EDUCAÇÃO INFANTIL E FUNDAMENTAL  3 - CRIANÇA NA ESCOLA  12.361 - Educação / Ensino Fundamental  2.013 - MANUTENÇÃO DA EDUCAÇÃO BÁSICA  35 - 3.3.90.00.00.00.00.00 - APLICAÇÕES DIRETAS 1.500.1001.0001 - EDUCAÇÃO - 25% ARRECADAÇÃO DE IMPOSTOS R$ 220.000,00Art. 3º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 12 de novembro de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicado e Registrado em 12 de novembro de 2025.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

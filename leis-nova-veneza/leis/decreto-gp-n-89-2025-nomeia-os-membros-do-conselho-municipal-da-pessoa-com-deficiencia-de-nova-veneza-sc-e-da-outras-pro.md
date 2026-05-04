@@ -1,0 +1,13 @@
+# DECRETO GP Nº 89, DE 21 DE NOVEMBRO DE 2025.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 27/11/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2025/9/89/decreto-gp-n-89-2025-nomeia-os-membros-do-conselho-municipal-da-pessoa-com-deficiencia-de-nova-veneza-sc-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 89, DE 21 DE NOVEMBRO DE 2025. "NOMEIA OS MEMBROS DO CONSELHO MUNICIPAL DA PESSOA COM DEFICIÊNCIA DE NOVA VENEZA/SC, E DÁ OUTRAS PROVIDÊNCIAS."ANGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 2.649, de 17 de outubro de 2018, DECRETA:Art. 1º Ficam nomeados os membros abaixo para comporem o Conselho Municipal da Pessoa com Deficiência de Nova Veneza, sem ônus para o Município, que terá composição paritária de conformidade com a Lei, fixada na forma que segue:  I - REPRESENTANTES DO PODER PÚBLICO MUNICIPAL  a) Representante da Secretaria Municipal de Assistência Social:Titular: Elisabete Tereza Bortolotto;Suplente: Lucimar Terezinha Romagna.  b) Representante da Secretaria de Saúde:Titular: Daniela Michels Zanelatto;Suplente: Andressa de Medeiros Schulter.  c) Representantes da Secretaria de Educação:Titular: Laís Gava Savio;Suplente: Priscila Araújo Lucio.Titular: Viviane Bortolotto;Suplente: Lúcia Terezinha Preis Tomasi.  II - REPRESENTANTES DE ENTIDADES DA SOCIEDADE CIVIL ORGANIZADA, DIRETAMENTE LIGADA À DEFESA/ATENDIMENTO DOS DIREITOS DAS PESSOAS DEFICIENTES  d) Representantes da APAE:Titular: Karina Spillere Remor;Suplente: Nórdia Beatriz Nazari.Titular: Teresa Ducemar Brolesi;Suplente: Maria das Graças Giordani Lanzendorf.Fone: (048) 3471-1766  e) Representantes do Hospital São Marcos:Titular: Marcelo Sottana;Suplente: Melania Pazetto Destro.  f) Representantes da AFAVE:Titular: Tânia Regina Amboni Spilere;Suplente: Carmen Beatriz Ghislandi Nuernberg.Art. 2º Este Decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário, em especial o Decreto GP Nº 201, de 02 de maio de 2018.Nova Veneza, SC, 21 de novembro de 2025.ANGELA MARIANA PANATO GHISLANDI DE MELO Prefeita MunicipalPublicado e Registrado em 21 de novembro de 2025.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

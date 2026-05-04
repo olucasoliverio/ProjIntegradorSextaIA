@@ -1,0 +1,14 @@
+# DECRETO SAF Nº 03, DE 17 DE FEVEREIRO DE 2025.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 17/02/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2025/1/3/decreto-saf-n-3-2025-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-transportes-obras-e-servicos-urbanos-credito-suplementar-no-valor-de-r-42240-41-por-conta-da-anulacao-de-saldos-de-dotacoes-orcamentarias-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 03, DE 17 DE FEVEREIRO DE 2025."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE TRANSPORTES, OBRAS E SERVIÇOS URBANOS, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 42.240,41, POR CONTA DA ANULAÇÃO DE SALDOS DE DOTAÇÕES ORÇAMENTÁRIAS, E DÁ OUTRAS PROVIDÊNCIAS."ANGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 8º., da Lei Municipal nº 3.116, de 28 de novembro de 2024, DECRETA:Art. 1º Art. 1º - Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 3.116, de 28 de novembro de 2024), em favor da Secretaria Municipal de Transportes, Obras e Serviços Urbanoso, crédito suplementar no valor de R$ 42.240,41 (quarenta e dois mil, duzentos e quarenta reais e quarenta e um centavos), por conta da anulação de saldos de dotações orçamentárias, para atender a programação abaixo discriminada: Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA 10.001 - SECRETARIA DE TRANSP. OBRAS E SERV. URB. / DEPARTAMENTO DE ESTRADAS DE RODAGEM Proj./Ativ. 2.040: MANUTENÇÃO DA SECRETARIA DE OBRAS E SERVIÇOS PÚBLICOS. Aplicação: (75) 3.3.71.00.00.00.00.00 - TRANSFERÊNCIAS A CONSÓRCIOS PÚBLICOS - 1.500.0000.0000 - RECURSOS ORDINÁRIOS .... R$ 42.240,41Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º. decorrem da anulação parcial da seguinte dotação orçamentária: Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA 10.001 - SECRETARIA DE TRANSP. OBRAS E SERV. URB. / DEPARTAMENTO DE ESTRADAS DE RODAGEM Proj./Ativ. 2.040: MANUTENÇÃO DA SECRETARIA DE OBRAS E SERVIÇOS PÚBLICOS. Aplicação: (73) 3.1.71.00.00.00.00.00 - TRANSFERÊNCIAS A CONSÓRCIOS PÚBLICOS - 1.500.0000.0000 - RECURSOS ORDINÁRIOS .... R$ 42.240,41Art. 3º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 17 de fevereiro de 2025.ANGELA MARIANA PANATO GHISLANDI DE MELOPrefeito MunicipalPublicado e registrado em 27 de janeiro de 2025.  1. ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

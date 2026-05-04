@@ -1,0 +1,14 @@
+# DECRETO GP Nº 58, DE 04 DE JULHO DE 2025.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 07/07/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2025/6/58/decreto-gp-n-58-2025-homologa-resolucoes-do-conselho-municipal-de-assistencia-social-cmas-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 58, DE 04 DE JULHO DE 2025. "HOMOLOGA RESOLUÇÕES DO CONSELHO MUNICIPAL DE ASSISTÊNCIA SOCIAL - CMAS, E DÁ OUTRAS PROVIDÊNCIAS".ÂNGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, em conformidade com a Lei Municipal nº 1.459, de 25 de dezembro de 2000, DECRETA:Art. 1º Fica homologada a Resolução nº 003/CMAS/2025, do Conselho Municipal de Assistência Social - CMAS, datada de 22 de maio de 2025, que "Dispõe sobre a aprovação da Prestação de Contas do exercício de 2024 do município de Nova Veneza/SC", anexa a este Decreto.Art. 2º Fica homologada a Resolução nº 004/CMAS/2025, do Conselho Municipal de Assistência Social - CMAS, datada de 04 de junho de 2025, que "Convocar a XIII Conferência Municipal de Assistência Social e dá outras providências", anexa a este Decreto.Art. 3º Fica homologada a Resolução nº 005/CMAS/2025, do Conselho Municipal de Assistência Social - CMAS, datada de 27 de junho de 2025, que "Aprova o Plano de Ação referente ao Recurso do Piso de Transição da média Complexidade para o exercício de 2025, do município de Nova Veneza/SC", anexa a este Decreto.Art. 4º Fica homologada a Resolução nº 006/CMAS/2025, do Conselho Municipal de Assistência Social - CMAS, datada de 27 de junho de 2025, que "Aprova o Regimento Interno da Conferência Municipal de Assistência Social de 2025", do município de Nova Veneza/SC", anexa a este Decreto.Art. 5º Fica homologada a Resolução nº 007/CMAS/2025, do Conselho Municipal de Assistência Social - CMAS, datada de 27 de junho de 2025, que "Aprova a Utilização de Saldo no SIGTV para Aquisição de Bens de Investimentos", do município de Nova Veneza/SC", anexa a este Decreto.Art. 6º Fica homologada a Resolução nº 008/CMAS/2025, do Conselho Municipal de Assistência Social - CMAS, datada de 27 de junho de 2025, que "Aprova a Proposta de Termo de Fomento com a APAE para o Projeto "Acolher para proteger", anexa a este Decreto.Art. 7º Este Decreto entra em vigor na data de sua publicação.Art. 8º Revoga-se as disposições em contrário, em especial o Decreto GP nº 048, de 06 de junho de 2025.Nova Veneza, SC, 04 de julho de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicado e Registrado em 04 de julho de 2025.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e FinançasCARINA VIOLA SANGALLETTISecretária Municipal de Assistência Social
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,13 @@
+# DECRETO SAF Nº 27, DE 31 DE JULHO DE 2025.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 01/08/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2025/3/27/decreto-saf-n-27-2025-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-gestao-do-centro-administrativo-por-conta-da-anulacao-de-saldo-de-dotacao-orcamentaria-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 27, DE 31 DE JULHO DE 2025."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA GESTÃO DO CENTRO ADMINISTRATIVO, POR CONTA DA ANULAÇÃO DE SALDO DE DOTAÇÃO ORÇAMENTÁRIA, E DÁ OUTRAS PROVIDÊNCIAS."ÂNGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 8º., da Lei Municipal nº 3.116, de 28 de novembro de 2024, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 3.116, de 28 de novembro de 2024), em favor da Gestão do Centro Administrativo, crédito suplementar no valor de R$ 24.000,00 (Vinte e quatro mil reais), por conta da anulação de saldos de dotações orçamentárias, para atender a programação abaixo discriminada:Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA  02.001 - GESTÃO DO CENTRO ADMINISTRATIVO / GESTÃO DO CENTRO ADMINISTRATIVO  2 - GESTÃO DO CENTRO ADMINISTRATIVO  27.813 - Desporto e Lazer / Lazer  2.065 - MANUTENÇÃO DA SECRETARIA MUNICIPAL DA JUVENTUDE  19 - 3.3.90.00.00.00.00.00 - APLICAÇÕES DIRETAS  1.500.0000.0000 - RECURSOS ORDINÁRIOS R$ 24.000,00Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º. decorrem da anulação parcial da seguinte dotação orçamentária:Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA  02.001 - GESTÃO DO CENTRO ADMINISTRATIVO / GESTÃO DO CENTRO ADMINISTRATIVO  2 - GESTÃO DO CENTRO ADMINISTRATIVO  27.813 - Desporto e Lazer / Lazer  2.065 - MANUTENÇÃO DA SECRETARIA MUNICIPAL DA JUVENTUDE   18 - 3.1.90.00.00.00.00.00 - APLICAÇÕES DIRETAS  1.500.0000.0000 - RECURSOS ORDINÁRIOS R$ 24.000,00Art. 3º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 31 de julho de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicado e Registrado em 31 de julho de 2025.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

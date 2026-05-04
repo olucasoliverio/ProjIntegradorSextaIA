@@ -1,0 +1,13 @@
+# DECRETO GP Nº 08, DE 12 DE FEVEREIRO DE 2026.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 18/02/2026
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2026/1/8/decreto-gp-n-8-2026-declara-de-utilidade-publica-para-fins-de-instituicao-de-servidao-administrativa-uma-area-de-terra-localizada-no-municipio-de-nova-veneza-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 08, DE 12 DE FEVEREIRO DE 2026. "DECLARA DE UTILIDADE PÚBLICA, PARA FINS DE INSTITUIÇÃO DE SERVIDÃO ADMINISTRATIVA, UMA ÁREA DE TERRA LOCALIZADA NO MUNICÍPIO DE NOVA VENEZA E DÁ OUTRAS PROVIDÊNCIAS."EDÉSIO SPILERE, Prefeito Municipal em exercício de Nova Veneza, no uso das atribuições que lhe confere a Lei Orgânica Municipal e fundamentada no art. 5º., inciso XXIII da Constituição Federal e, especialmente, no art. 40 do Decreto-Lei nº 3.365/1941:DECRETA:Art. 1º Fica declarada de utilidade pública, para fins de instituição de servidão administrativa de forma gratuita e permanente, uma área de terra de 381,00 m². A referida área situa-se dentro do imóvel rural matriculado sob o nº 7.049 nº 2º Registro de Imóveis da Comarca de Criciúma/SC, de propriedade de Fábio Valentim Destro e Antônio Eduardo Destro.Art. 2º A servidão administrativa descrita no artigo anterior destina-se exclusivamente à construção, manutenção e conservação da rede de distribuição de água da Associação de Abastecimento de Água da Comunidade de São Bento Alto, bem como das demais instalações e infraestrutura necessárias ao seu pleno funcionamento, compreendendo a instalação de reservatório e tubulações de rede.Art. 3º A área objeto da servidão é definida pelo perímetro indicado pelos seguintes vértices em coordenadas UTM: Vértice 01: Leste 639.139,78m e Norte 6.830.496,67m. Vértice 02: Leste 639.154,77m e Norte 6.830.497,24m. Vértice 03: Leste 639.154,90m e Norte 6.830.481,80m. Vértice 04: Leste 639.189,90m e Norte 6.830.482,10m. Vértice 05: Leste 639.189,93m e Norte 6.830.478,70m. Vértice 06: Leste 639.139,94m e Norte 6.830.478,27m.Art. 4º Fica o Município de Nova Veneza autorizado a praticar todos os atos necessários à efetivação da servidão, incluindo a obtenção de licenciamentos ambientais e a imissão na posse da área.Art. 5º As despesas decorrentes da lavratura da Escritura Pública e seu respectivo registro na matrícula do imóvel serão de responsabilidade do Município.Art. 6º Este Decreto entra em vigor na data de sua publicação.Nova Veneza, SC, 12 de fevereiro de 2026.EDÉSIO SPILEREPrefeito Municipal em exercícioPublicado e Registrado em 12 de fevereiro de 2026.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

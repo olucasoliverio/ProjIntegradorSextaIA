@@ -1,0 +1,14 @@
+# DECRETO SAF Nº 08, DE 19 DE JANEIRO DE 2026.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 21/01/2026
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2026/1/8/decreto-saf-n-8-2026-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-transportes-obras-e-servicos-urbanos-credito-suplementar-no-valor-de-r-368881-93-por-conta-de-provavel-excesso-de-arrecadacao-do-exercicio-de-2025-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 08, DE 19 DE JANEIRO DE 2026."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE TRANSPORTES, OBRAS E SERVIÇOS URBANOS, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 368.881,93, POR CONTA DE PROVÁVEL EXCESSO DE ARRECADAÇÃO DO EXERCÍCIO DE 2025, E DÁ OUTRAS PROVIDÊNCIAS."ÂNGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 9º., inciso I, da Lei Municipal nº 3.178, de 01 de dezembro de 2025, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 3.178, de 01 de dezembro de 2025), em favor da Secretaria Municipal de Transportes, Obras e Serviços Urbanos, crédito suplementar no valor de R$ 368.881,93 (trezentos e sessenta e oito mil oitocentos e oitenta e um reais e noventa e três centavos), por conta de provável excesso de arrecadação do exercício anterior, para atender a programação abaixo discriminada:Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA  10 .000 - SECRETARIA DE TRANSP. OBRAS E SERV. URB.  10 .001 - DEPARTAMENTO DE ESTRADAS DE RODAGEM  7 - CIDADE DO FUTURO  26.782 - Transporte / Transporte Rodoviário  1 .040 - PAVIMENTAÇÃO DE VIAS, RODOVIAS E LOGRADOUROS  93 - 4.4.90.00.00.00.00.00 - APLICAÇÕES DIRETAS  1.701.0000.0064 - TRANSFERÊNCIA DE CONVÊNIOS ESTADO/OUTROS....R$ 368.881,93  Parágrafo único. A contratação de despesas por conta do provável Excesso de Arrecadação CONVÊNIO SIMPLIFICADO SCC 11833/2025 de que trata este artigo, fica condicionada e limitada ao efetivo ingresso dos recursos nas contas bancárias correspondentes.Art. 2º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 19 de janeiro de 2026.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicado e registrado em 19 de janeiro de 2026.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

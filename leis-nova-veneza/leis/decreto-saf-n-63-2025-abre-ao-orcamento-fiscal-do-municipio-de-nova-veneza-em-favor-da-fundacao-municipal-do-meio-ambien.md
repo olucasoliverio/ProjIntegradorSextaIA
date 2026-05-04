@@ -1,0 +1,13 @@
+# DECRETO SAF Nº 63, DE 04 DE DEZEMBRO DE 2025.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 08/12/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2025/7/63/decreto-saf-n-63-2025-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-fundacao-municipal-do-meio-ambiente-credito-suplementar-no-valor-de-r-58560-00-por-conta-de-provavel-excesso-de-arrecadacao-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 63, DE 04 DE DEZEMBRO DE 2025."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA FUNDAÇÃO MUNICIPAL DO MEIO AMBIENTE, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 58.560,00, POR CONTA DE PROVÁVEL EXCESSO DE ARRECADAÇÃO, E DÁ OUTRAS PROVIDÊNCIAS."ANGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 9º., inciso I, da Lei Municipal nº 3.116, de 28 de novembro de 2024, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 3.116, de 28 de novembro de 2024), em favor da Fundação Municipal do Meio Ambiente de Nova Veneza, crédito suplementar no valor de R$ 58.560,00 (cinquenta e oito mil quinhentos e sessenta reais), por conta do provável excesso de arrecadação, para atender a programação abaixo discriminada:Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA  16.000 - FUNDAÇÃO MUNICIPAL DO MEIO AMBIENTE DE NOVA VENEZA  16.001 - FUNDAÇÃO MUNICIPAL DO MEIO AMBIENTE DE NOVA VENEZA  6 - SERVIÇOS DE UTILIDADE PÚBLICA  18.541 - Gestão Ambiental / Preservação e Conservação Ambiental  2.064 - MANUTENÇÃO DA FUNDAÇÃO MUNICIPAL DO MEIO AMBIENTE  102 - 3.3.90.00.00.00.00.00 - APLICAÇÕES DIRETAS - 1.701.0000.0064 TRANSFERÊNCIA DE CONVÊNIOS ESTADO/OUTROS....R$ 58.560,00  Parágrafo único. A contratação de despesas por conta do provável excesso de arrecadação - Relatório de transferência 2025TE002945 de que trata este artigo, fica condicionada e limitada ao efetivo ingresso dos recursos nas contas bancárias correspondentes.Art. 2º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário, em especial o Decreto SAF nº 062, de 03 de dezembro de 2025.Nova Veneza, SC, 04 de dezembro de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicado e registrado em 04 de dezembro de 2025.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

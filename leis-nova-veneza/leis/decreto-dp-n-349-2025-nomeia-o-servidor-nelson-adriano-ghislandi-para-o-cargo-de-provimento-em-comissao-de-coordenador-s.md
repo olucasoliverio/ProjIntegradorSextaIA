@@ -1,0 +1,14 @@
+# DECRETO DP Nº 349, DE 03 DE ABRIL DE 2025.
+
+**Tipo:** DECRETO DP Nº
+**Número:** 
+**Data:** 05/06/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-dp/2025/35/349/decreto-dp-n-349-2025-nomeia-o-servidor-nelson-adriano-ghislandi-para-o-cargo-de-provimento-em-comissao-de-coordenador-setorial-i-cc-4
+
+## Texto Completo
+
+DECRETO DP Nº 349, DE 03 DE ABRIL DE 2025.Nomeia o servidor, NELSON ADRIANO GHISLANDI, para o cargo de provimento em comissão de COORDENADOR SETORIAL I - CC-4.ÂNGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, SC, usando das atribuições legais e de conformidade com o inciso IX, artigo 53, da Lei Orgânica Municipal, Lei Complementar nº 001 de 03 de abril de 2012 e Lei 2.729 de 28 de outubro de 2019, DECRETA:Art. 1º Fica nomeado o servidor, NELSON ADRIANO GHISLANDI, brasileiro, maior, para o cargo de provimento em comissão de COORDENADOR SETORIAL I - CC-4, 40 (quarenta) horas semanais, na Secretaria Municipal de Cultura, Esporte e Turismo.Art. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza/SC, 03 de abril de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalRegistrada e publicada em 03 de abril de 2025.IZABELLE AMBONI DESTROSecretária Municipal de Cultura, Esporte e Turismo.
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

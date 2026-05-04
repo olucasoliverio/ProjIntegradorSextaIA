@@ -1,0 +1,14 @@
+# DECRETO GP Nº 60, DE 04 DE JULHO DE 2025.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 07/07/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2025/6/60/decreto-gp-n-60-2025-nomeia-membros-do-conselho-municipal-de-desenvolvimento-planejamento-urbano-e-meio-ambiente-do-municipio-de-nova-veneza-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 60, DE 04 DE JULHO DE 2025. "NOMEIA MEMBROS DO CONSELHO MUNICIPAL DE DESENVOLVIMENTO, PLANEJAMENTO URBANO E MEIO AMBIENTE DO MUNICÍPIO DE NOVA VENEZA, E DÁ OUTRAS PROVIDÊNCIAS."ÂNGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 1.706, de 10 de dezembro de 2004, DECRETA:Art. 1º Ficam nomeados, sem ônus para o Município, os membros do Conselho Municipal de Desenvolvimento, Planejamento Urbano e Meio Ambiente, conforme abaixo discriminados:  I - Representantes da Secretaria Municipal de Planejamento Urbano:Titular: Realdino José BusarelloSuplente: Carlos Luciano Savi  II - Representantes da Secretaria Municipal de Obras;Titular: Eduardo Vassoler UgioniSuplente: Jorge Ronconi  III - Representantes da Câmara de Vereadores de Nova Veneza.Titular: Elton NuernbergSuplente: Evandro Luis Gava  IV - Representantes das Igrejas;Titular: PE. Gilson PereiraSuplente: PE. Joel Savio  V - Representantes da CREA, residente no município;Titular: Fábio Bortoluzzi BrattiSuplente: José Luiz Ronconi  VI - Representantes da FUNDAVE - Fundação do meio AmbienteTitular: Caroline Dilma Cavalheiro PachecoSuplente: Ana Paula Feltrin Bortolotto  VII - Representantes da Associação Comercial e Industrial de Nova Veneza. Titular: Guilherme Nuernberg MinattoSuplente: Nilton Moretto  VIII - Representantes da CDL de Nova Veneza. Titular: Débora Izidoro PossamaiSuplente: Brigida Brunel  IX - Representantes dos Agricultores.Titular: Evandro BoaroliSuplente: José Carlos Semprebom  X - Representantes da Associação Cultural de Nova Veneza.Titular: Romencito José AléssioSuplente: Idalino ColomboArt. 2º Este Decreto entra em vigor na data de sua publicação.Art. 3º Revoga-se as disposições em contrário, em especial o Decreto GP nº 057, de 20 de outubro de 2021.Nova Veneza, SC, 04 de julho de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicado e Registrado em 04 de julho de 2025.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e FinançasREALDINO JOSÉ BUSARELLOSecretário Municipal de Planejamento e Urbanismo
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,14 @@
+# LEI Nº 3.079, DE 21 DE MARÇO DE 2024.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 25/03/2024
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2024/308/3079/lei-ordinaria-n-3079-2024-autoriza-o-chefe-do-poder-executivo-a-ceder-maquinas-equipamentos-e-pessoal-aos-municipios-limitrofes-que-declararem-situacao-de-emergencia-ou-estado-de-calamidade-publica-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 3.079, DE 21 DE MARÇO DE 2024. "AUTORIZA O CHEFE DO PODER EXECUTIVO A CEDER MÁQUINAS, EQUIPAMENTOS E PESSOAL AOS MUNICÍPIOS LIMÍTROFES QUE DECLARAREM SITUAÇÃO DE EMERGÊNCIA OU ESTADO DE CALAMIDADE PÚBLICA, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo Municipal autorizado a ceder máquinas, equipamentos e pessoal aos Municípios limítrofes que forem afetados por desastres humanos, tecnológicos e naturais, assim declarados como Situação de Emergência - SE ou não, desde que comprovada a necessidade, ou Estado Calamidade Pública - ECP.  § 1º A cessão referida no caput está condicionada a requerimento do Município a ser beneficiado.  § 2º As máquinas, equipamentos e pessoal serão cedidos para o restabelecimento dos serviços públicos essenciais, tais como desobstrução e recuperação de vias limítrofes, estendendo-se, também, aos setores de saúde, trânsito, segurança e tecnologia, a juízo do município cedente.Art. 2º O controle de máquinas, equipamentos e pessoal cedido, será de competência do Poder Executivo Municipal cedente, que deverá atuar conjuntamente com o órgão competente do município beneficiado com a presente lei.  Parágrafo único. Todas as ações serão de competência da Coordenadoria de Proteção e Defesa Civil do Município cedente.Art. 3º As despesas de locomoção das máquinas, equipamentos e pessoal até os municípios atingidos correrão por conta do município cedente através de dotações próprias do orçamento municipal vigente em cada exercício.Art. 4º O Executivo Municipal expedirá decreto especificando as máquinas, os equipamentos e pessoal a serem cedidos, estipulando um prazo determinado pela cessão.Art. 5º O Município de Nova Veneza ajudará aos Municípios Catarinenses que preferencialmente se comprometeram, através de Lei Municipal, a prestar ajuda nos casos de declaração de Situação de Emergência - SE ou Estado de Calamidade Pública - ECP.Art. 6º Esta Lei entrará em vigor na data de sua publicação.Nova Veneza, SC, 21 de março de 2024.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 21 de março de 2024.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

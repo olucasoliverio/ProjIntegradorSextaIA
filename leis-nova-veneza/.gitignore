@@ -3,7 +3,7 @@
 network_log.json
 errors.json
 
-# Arquivos de Teste / HTML Temporarios (que barraram seu git)
+# Arquivos de Teste / HTML Temporarios
 lei_*.html
 lei_final_data.json
 inspect*.html
@@ -26,6 +26,3 @@ package-lock.json
 # VS Code / OS
 .vscode/
 .DS_Store
-
-# ATENÇÃO: NÃO ignorei as pastas "leis/" nem o "links_cache.json"!
-# Eles serão subidos para o GIT para que o outro PC consiga puxar o estado atual.

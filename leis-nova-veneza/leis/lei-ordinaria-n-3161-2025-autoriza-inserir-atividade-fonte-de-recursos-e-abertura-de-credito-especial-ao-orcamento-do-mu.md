@@ -1,0 +1,14 @@
+# LEI Nº 3.161, DE 23 DE OUTUBRO DE 2025.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 24/10/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2025/317/3161/lei-ordinaria-n-3161-2025-autoriza-inserir-atividade-fonte-de-recursos-e-abertura-de-credito-especial-ao-orcamento-do-municipio-do-ano-em-curso-na-unidade-prefeitura-municipal-por-conta-do-excesso-de-arrecadacao-do-exercicio-em-curso-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 3.161, DE 23 DE OUTUBRO DE 2025. "AUTORIZA INSERIR ATIVIDADE, FONTE DE RECURSOS E ABERTURA DE CRÉDITO ESPECIAL AO ORÇAMENTO DO MUNICÍPIO DO ANO EM CURSO NA UNIDADE PREFEITURA MUNICIPAL, POR CONTA DO EXCESSO DE ARRECADAÇÃO DO EXERCÍCIO EM CURSO E DÁ OUTRAS PROVIDÊNCIAS"A PREFEITA MUNICIPAL DE NOVA VENEZA - SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ela sanciona a seguinte Lei:Art. 1º Fica o Chefe do Poder executivo autorizado inserir Projeto/Atividade específico, Fonte de Recursos e abrir crédito especial ao Orçamento da Unidade Prefeitura Municipal de Nova Veneza, por conta do excesso de arrecadação do exercício em curso, na forma do artigo 43, II, da Lei Federal 4.320/64, no que se refere aos recursos vinculados e por conta do superávit do exercício anterior, no que se refere aos Recursos Ordinários, até o valor de R$ 50.000,00 (cinquenta mil reais), conforme abaixo especificado:Entidade Prefeitura Municipal de Nova VenezaÓrgão 02: Gestão do Centro AdministrativoFuncional Programática: 02.001.04.122.0002 - Gestão do Centro AdministrativoProj./Atividade 04.122.0002.2.XXX: Manutenção do Fundo Municipal do Idoso 1.000,00TOTAL R$ 50.000,00Art. 2º Os recursos destinados aos créditos do artigo anterior, no que se refere aos recursos vinculados, correrão por conta do excesso de arrecadação, creditados na Conta Corrente nº 31.280-0, ag. 2357-4 do Banco do Brasil, vinculada à movimentação dos recursos do Fundo Municipal do Idoso de Nova Veneza e por conta do superávit do exercício anterior, no que se refere aos Recursos Ordinários, na anulação parcial destes.Art. 3º Ficam autorizados os ajustes que se fizerem necessários nos anexos de metas físicas e fiscais do Plano Plurianual 2022/2025 - Lei Municipal 2.899, de 23 de setembro de 2021 e na Lei de Diretrizes Orçamentárias 2025 - Lei Municipal nº 3.106, de 19 de setembro de 2024, por conta das alterações constantes da presente Lei.Art. 4º Esta Lei entra em vigor na data de sua publicação.Art. 5º Revogam-se as disposições em contrário.Nova Veneza - SC, 23 de outubro de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

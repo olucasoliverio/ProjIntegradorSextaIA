@@ -1,0 +1,13 @@
+# DECRETO SAF Nº 26, DE 30 DE JULHO DE 2025.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 31/07/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2025/3/26/decreto-saf-n-26-2025-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-educacao-por-conta-da-anulacao-de-saldos-de-dotacoes-orcamentarias-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 26, DE 30 DE JULHO DE 2025."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE EDUCAÇÃO, POR CONTA DA ANULAÇÃO DE SALDOS DE DOTAÇÕES ORÇAMENTÁRIAS, E DÁ OUTRAS PROVIDÊNCIAS."ÂNGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 8º., da Lei Municipal nº 3.116, de 28 de novembro de 2024, DECRETA:Art. 1º Art. 1º - Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 3.116, de 28 de novembro de 2024), em favor da Secretaria Municipal de Educação, crédito suplementar no valor de R$ 25.358,40 (Vinte e cinco mil trezentos e cinquenta e oito reais e quarenta centavos), por conta da anulação de saldos de dotações orçamentárias, para atender a programação abaixo discriminada:Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA  07.001 - SECRETARIA DE EDUCAÇÃO / DEPARTAMENTO DE EDUCAÇÃOINFANTIL E FUNDAMENTAL  3 - CRIANÇA NA ESCOLA  12.367 - Educação / Educação Especial  2.020 - MANUTENÇÃO DE OUTROS NIVEIS DE ENSINO  44 - 3.3.50.00.00.00.00.00 - TRANSFERÊNCIAS A INSTITUIÇÕES PRIVADAS SEM FINS LUCRATIVOS  1.500.1001.0001 - EDUCAÇÃO - 25% ARRECADAÇÃO DE IMPOSTOS R$ 25.358,40Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º. decorrem da anulação parcial da seguinte dotação orçamentária:Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA  07.001 - SECRETARIA DE EDUCAÇÃO / DEPARTAMENTO DE EDUCAÇÃO INFANTIL E FUNDAMENTAL  3 - CRIANÇA NA ESCOLA  12.367 - Educação / Educação Especial  2.020 - MANUTENÇÃO DE OUTROS NIVEIS DE ENSINO 45 - 3.3.90.00.00.00.00.00 - APLICAÇÕES DIRETAS  1.500.1001.0001 - EDUCAÇÃO - 25% ARRECADAÇÃO DE IMPOSTOS R$ 25.358,40Art. 3º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 30 de julho de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicado e Registrado em 30 de julho de 2025.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

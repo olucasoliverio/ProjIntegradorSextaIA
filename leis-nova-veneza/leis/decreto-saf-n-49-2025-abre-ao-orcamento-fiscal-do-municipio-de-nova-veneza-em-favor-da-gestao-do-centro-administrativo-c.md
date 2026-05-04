@@ -1,0 +1,13 @@
+# DECRETO SAF Nº 49, DE 02 DE OUTUBRO DE 2025.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 06/10/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2025/5/49/decreto-saf-n-49-2025-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-gestao-do-centro-administrativo-credito-suplementar-no-valor-de-r-145745-83-por-conta-de-provavel-excesso-de-arrecadacao-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 49, DE 02 DE OUTUBRO DE 2025."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA GESTÃO DO CENTRO ADMINISTRATIVO, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 145.745,83, POR CONTA DE PROVÁVEL EXCESSO DE ARRECADAÇÃO, E DÁ OUTRAS PROVIDÊNCIAS."ANGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 9º., inciso I, da Lei Municipal nº 3.116, de 28 de novembro de 2024, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 3.116, de 28 de novembro de 2024), em favor do Fundo Municipal de Saúde, crédito suplementar no valor de R$ 145.745,83 (cento e quarenta e cinco mil setecentos e quarenta e cinco reais e oitenta e três centavos), por conta do provável excesso de arrecadação, para atender a programação abaixo discriminada:Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA  02.001 - GESTÃO DO CENTRO ADMINISTRATIVO / GESTÃO DO CENTRO ADMINISTRATIVO  2 - GESTÃO DO CENTRO ADMINISTRATIVO  8.241 - Assistência Social / Assistência do Idoso  3.004 - CONSTRUÇÃO CENTRO DO IDOSO  21 - 4.4.90.00.00.00.00.00 - APLICAÇÕES DIRETAS - 1.701.0000.0064 TRANSFERÊNCIAS DE CONVÊNIOS ESTADO/OUTROS....R$ 145.745,83  Parágrafo único. A contratação de despesas por conta do provável excesso de arrecadação - Transferências Especial Voluntária do Processo SGPe nº sCC 10924/2023, fica condicionada e limitada ao efetivo ingresso dos recursos nas contas bancárias correspondentes.Art. 2º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 02 de outubro de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicado e registrado em 02 de outubro de 2025.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

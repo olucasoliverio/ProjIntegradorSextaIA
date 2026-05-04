@@ -1,0 +1,14 @@
+# DECRETO DP Nº 213, DE 12 DE FEVEREIRO DE 2025.
+
+**Tipo:** DECRETO DP Nº
+**Número:** 
+**Data:** 24/02/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-dp/2025/22/213/decreto-dp-n-213-2025-revogar-a-nomeacao-da-servidora-regilane-picolo-possamai-mondardo-ocupantes-de-cargo-em-provimento-efetivo-para-exercer-a-funcao-de-direcao-escolar-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO DP Nº 213, DE 12 DE FEVEREIRO DE 2025.Revogar a nomeação da servidora, REGILANE PICOLO POSSAMAI MONDARDO, ocupantes de cargo em provimento efetivo, para exercer a função de direção escolar e dá outras providências.A PREFEITA MUNICIPAL DE NOVA VENEZA, no uso de suas atribuições legais conferidas pelo art. 53 Lei Orgânica do Município e art. 5º., III do Decreto GP nº 050, de 13 de outubro de 2022, e;CONSIDERANDO o início de mandato da gestão municipal em 01 de janeiro de 2025;CONSIDERANDO o início do calendário escolar em fevereiro de 2025, sendo indispensável a presença do Diretor de Escola nas unidades de ensino;CONSIDERANDO que a designação para a Função de Diretor Escolar ocorrerá por meio de seleção, mediante comprovação de qualificação prevista no art. 2º. do Decreto Municipal nº 50/2022, aferição da competência técnico-pedagógica e habilidades gerenciais, por meio da análise do Plano de Gestão da Escola - PGE, o que demanda tempo para o processamento de todas as etapas do processo de seleção;CONSIDERANDO que o art. 5º., III do Decreto GP nº 050, de 13 de outubro de 2022 prevê que ao Chefe do Poder Executivo caberá a indicação dos ocupantes do cargo de Diretor de Escola, independentemente de processo qualificação, pelo mandato de no máximo 06 (seis) meses, a fim de que se conclua novo certame para escolha de novos Diretores, RESOLVE:Art. 1º Fica revogada a nomeação da servidora, REGILANE PICOLO POSSAMAI MONDARDO, ocupante do cargo em provimento efetivo, designada para exercer a função de Diretor Escolar no Centro Educacional Rosa Maccarini Spillere, das unidades de ensino do Município.Art. 2º Os Diretores ora designados exercerão suas funções observando as disposições legais pertinentes e as diretrizes da Secretaria Municipal de Educação.Art. 3º Este Decreto entra em vigor na data de sua publicação, revogadas as disposições em contrário, em especial o Decreto DP nº 149 de 03 de fevereiro de 2025.Nova Veneza/SC, 12 de fevereiro de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicada e Registrada em 12 de fevereiro de 2025.RENATA NUERNBERG WARMLING REISSecretária Municipal de Educação
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

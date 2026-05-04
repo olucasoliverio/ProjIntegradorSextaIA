@@ -1,0 +1,14 @@
+# DECRETO SAF Nº 19, DE 10 DE JUNHO DE 2025.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 11/06/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2025/2/19/decreto-saf-n-19-2025-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-transportes-obras-e-servicos-urbanos-credito-suplementar-no-valor-de-r-830000-00-por-conta-de-provavel-excesso-de-arrecadacao-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 19, DE 10 DE JUNHO DE 2025."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE TRANSPORTES, OBRAS E SERVIÇOS URBANOS, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 830.000,00, POR CONTA DE PROVÁVEL EXCESSO DE ARRECADAÇÃO, E DÁ OUTRAS PROVIDÊNCIAS."ANGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 9º., inciso I, da Lei Municipal nº 3.116, de 28 de novembro de 2024, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 3.116, de 28 de novembro de 2024), em favor da Secretaria Municipal de Transportes, Obras e Serviços Urbanos, crédito suplementar no valor de R$ 830.000,00 (oitocentos e trinta mil reais), por conta do provável excesso de arrecadação, para atender a programação abaixo discriminada:Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA   10.001 - SECRETARIA DE TRANSP. OBRAS E SERV. URB. / DEPART. DE EST. DE ROD. Proj./Ativ. 2.040: MANUTENÇÃO DA SECRETARIA DE OBRAS E SERVIÇOS PÚBLICOSAplicação: (76) 3.3.90.00.00.00.00.00 - Aplicações diretas - 1.752.7005.0000 - Convênio Trânsito - Civil R$ 260.000,00Aplicação: (80) 4.4.90.00.00.00.00.00 - Aplicações diretas - 1.752.7005.0000 - Convênio Trânsito - Civil R$ 570.000,00TOTAL R$ 830.000,00  Parágrafo único. Os recursos destinados aos créditos do artigo anterior correrão por conta do excesso de arrecadação, creditados na Conta Corrente nº 25.424-X, ag. 2357-4 do Banco do Brasil, vinculada à movimentação da cota-parte da Polícia do Convênio de arrecadação de multas, firmado com o Estado de Santa Catarina através do Departamento Estadual de Trânsito do Estado de Santa Catarina - DETRAN/SC (CNPJ: 34.060.183/0001-52).Art. 2º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 10 de junho de 2025.ANGELA MARIANA PANATO GHISLANDI DE MELO Prefeita MunicipalPublicado e registrado em 10 de junho de 2025.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

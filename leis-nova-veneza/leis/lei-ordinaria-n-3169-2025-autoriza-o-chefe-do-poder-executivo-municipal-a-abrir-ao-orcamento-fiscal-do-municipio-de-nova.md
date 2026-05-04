@@ -1,0 +1,14 @@
+# LEI Nº 3.169, DE 11 DE NOVEMBRO DE 2025.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 12/11/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2025/317/3169/lei-ordinaria-n-3169-2025-autoriza-o-chefe-do-poder-executivo-municipal-a-abrir-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-educacao-credito-suplementar-no-valor-de-r-220000-00-por-conta-da-transposicao-de-recursos-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 3.169, DE 11 DE NOVEMBRO DE 2025.AUTORIZA, O CHEFE DO PODER EXECUTIVO MUNICIPAL, A ABRIR, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE EDUCAÇÃO, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 220.000,00, POR CONTA DA TRANSPOSIÇÃO DE RECURSOS, E DÁ OUTRAS PROVIDÊNCIAS.A PREFEITA MUNICIPAL DE NOVA VENEZA - SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ela sanciona a seguinte Lei:Art. 1º Fica, o Chefe do Poder Executivo Municipal, autorizado a abrir, ao Orçamento Fiscal do Município de Nova Veneza (Lei Nº 3.116, de 28 de novembro de 2024), em favor da Secretaria Municipal de Educação, crédito suplementar no valor de R$ 220.000,00 (duzentos e vinte mil de reais), para atender a programação abaixo discriminada:Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA  07.001 - SECRETARIA DE EDUCAÇÃO / DEPARTAMENTO DE EDUCAÇÃO INFANTIL E FUNDAMENTAI  3 - CRIANÇA NA ESCOLA  12.367 - Educação / Educação Especial  2.020 - MANUTENÇÃO DE OUTROS NÍVEIS DE ENSINO  43 - 3.1.90.00.00.00.00.00 - APLICAÇÕES DIRETAS  1.500.1001.0001 - EDUCAÇÃO - 25% ARRECADAÇÃO DE IMPOSTOS R$ 10.000,00  45 - 3.3.90.00.00.00.00.00 - APLICAÇÕES DIRETAS  1.500.1001.0001 - EDUCAÇÃO - 25% ARRECADAÇÃO DE IMPOSTOS R$ 210.000,00Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1s decorrem da anulação parcial da seguinte dotação orçamentária:Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA  07.001 - SECRETARIA DE EDUCAÇÃO / DEPARTAMENTO DE EDUCAÇÃO INFANTIL E FUNDAMENTAL  3 - CRIANÇA NA ESCOLA  12.361 - Educação / Ensino Fundamental  2.013 - MANUTENÇÃO DA EDUCAÇÃO BÁSICA  35 - 3.3.90.00.00.00.00.00 - APLICAÇÕES DIRETAS  1.500.1001.0001 - EDUCAÇÃO - 25% ARRECADAÇÃO DE IMPOSTOS R$ 220.000,00Art. 3º Esta Lei entra em vigor na data de sua publicação.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicada e registrada em 11 de novembro de 2025.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

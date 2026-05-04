@@ -1,0 +1,14 @@
+# DECRETO Nº 33, DE 29 DE ABRIL DE 2025.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 29/04/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2025/4/33/decreto-n-33-2025-reconhece-a-nulidade-dos-atos-que-menciona-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 33, DE 29 DE ABRIL DE 2025. "RECONHECE A NULIDADE DOS ATOS QUE MENCIONA E DÁ OUTRAS PROVIDÊNCIAS"ANGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município;CONSIDERANDO o art. 12 - A, da Resolução CONTRAN nº 210 de 13 de novembro de 2006, alterada pela Resolução CONTRAN nº 608/16, que determina que os órgãos e entidades executivos rodoviários podem fixar valores mais restritivos de limites de peso e dimensões para veículos que transitam por vias terrestres, desde que observado o estudo de engenharia respectivo;CONSIDERANDO, o art. 61, da Resolução CONTRAN nº 882, de 13 de dezembro de 2021, que determina os pesos e as dimensões máximas não excluem a competência dos OEER para fixar valores mais restritivos em relação às vias sob sua circunscrição, de acordo com as restrições ou limitações estruturais da área, via, pista, faixa ou obra de arte, desde que observado o estudo de engenharia respectivo;CONSIDERANDO, o princípio da legalidade ser na administração pública, essencial para a garantia da justiça e do Estado Democrático de Direito, onde estabelece que todas as ações e decisões do Poder Público devem estar amparadas na lei;CONSIDERANDO, não existir nos Decretos, 462/2017, 486/2017, 457/2019 e 187/2020, nenhum estudo de engenharia que justifique ou comprove a restrição de trânsito de veículos que mencionam;CONSIDERANDO A Sumula 473 do STF que estabelece que atos administrativos nulos não geram direitos ou obrigações para as partes e não criam situações jurídicas definitivas, DECRETA:Art. 1º Fica reconhecida a nulidade dos Decretos 462 de 11 de outubro de 2017, 486 de 03 de novembro de 2017, 457 de 02 de setembro de 2019 e 187 de 16 de junho de 2020, considerando a falta de estudo de engenharia que os justifiquem.Art. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se os Decretos 462 de 11 de outubro de 2017, 486 de 03 de novembro de 2017, 457 de 02 de setembro de 2019 e 187 de 16 de junho de 2020.Nova Veneza, SC, 29 de abril de 2025.ANGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicado e Registrado em 29 de abril de 2025.REALDINO JOSÉ BUSARELLOSecretário Municipal de Planejamento
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

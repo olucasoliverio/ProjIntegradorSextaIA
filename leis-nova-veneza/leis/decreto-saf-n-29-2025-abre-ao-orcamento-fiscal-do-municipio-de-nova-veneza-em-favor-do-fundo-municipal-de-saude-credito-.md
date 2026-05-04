@@ -1,0 +1,13 @@
+# DECRETO SAF Nº 29, DE 06 DE AGOSTO DE 2025.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 07/08/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2025/3/29/decreto-saf-n-29-2025-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-do-fundo-municipal-de-saude-credito-suplementar-no-valor-de-r-600000-00-por-conta-de-provavel-excesso-de-arrecadacao-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 29, DE 06 DE AGOSTO DE 2025."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DO FUNDO MUNICIPAL DE SAÚDE, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 600.000,00, POR CONTA DE PROVÁVEL EXCESSO DE ARRECADAÇÃO, E DÁ OUTRAS PROVIDÊNCIAS."ANGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 9º., inciso I, da Lei Municipal nº 3.116, de 28 de novembro de 2024, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 3.116, de 28 de novembro de 2024), em favor do Fundo Municipal de Saúde, crédito suplementar no valor de R$ 600.000,00 (seiscentos mil reais), por conta do provável excesso de arrecadação, para atender a programação abaixo discriminada:Entidade: FUNDO MUNICIPAL DE SAUDE DE NOVA VENEZA   13.001 - SECRETARIA DE SAUDE / SECRETARIA DA SAUDE  4 - SAÚDE E CIDADANIA 10.301 - Saúde / Atenção Básica   2.024 - MANUTENÇÃO DA REDE MUNICIPAL DE SAUDE   6 - 3.3.93.00.00.00.00.00 - APLICAÇÃO DIRETA DECORRENTE DE OPERAÇÃO DE ÓRGÃOS, FUNDOS E ENTIDADES INTEGRANTES DOS ORÇAMENTOS FISCAL E DA SEGURIDADE SOCIAL COM CONSÓRCIO PÚBLICO D   1.631.0000.0000 - Transferências de Convênios da União para o Sistema Único de Saúde-SUS R$ 600.000,00  Parágrafo único. A contratação de despesas por conta do provável excesso de arrecadação da Propostas MS: 36000660347202500, 36000660259202500 e 36000660325202500, fica condicionada e limitada ao efetivo ingresso dos recursos nas contas bancárias correspondentes.Art. 2º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 06 de agosto de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicado e registrado em 06 de agosto de 2025.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

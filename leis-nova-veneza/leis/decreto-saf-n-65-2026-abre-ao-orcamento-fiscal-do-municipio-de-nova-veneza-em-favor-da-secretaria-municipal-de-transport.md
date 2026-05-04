@@ -1,0 +1,13 @@
+# DECRETO SAF Nº 65, DE 14 DE ABRIL DE 2026.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 17/04/2026
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2026/7/65/decreto-saf-n-65-2026-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-transportes-obras-e-servicos-urbanos-credito-especial-no-valor-de-r-150000-00-por-conta-de-provavel-excesso-de-arrecadacao-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 65, DE 14 DE ABRIL DE 2026."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE TRANSPORTES, OBRAS E SERVIÇOS URBANOS, CRÉDITO ESPECIAL NO VALOR DE R$ 150.000,00, POR CONTA DE PROVÁVEL EXCESSO DE ARRECADAÇÃO, E DÁ OUTRAS PROVIDÊNCIAS."ÂNGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 3.201, de 13 de abril de 2026, DECRETA:Art. 1º Fica inserido elemento de despesa específico e fica aberto crédito especial ao Orçamento da Unidade Prefeitura Municipal de Nova Veneza (Lei Municipal nº 3.201, de 13 de abril de 2026), na forma do artigo 43, II, da Lei Federal 4.320/64, no que se refere aos recursos vinculados e por conta de excesso de arrecadação, até o valor de R$ 150.000,00 (cento e cinquenta mil reais), conforme abaixo especificado:Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA  10.000 - SECRETARIA DE TRANSP. OBRAS E SERV. URB.  10.001 - DEPARTAMENTO DE ESTRADAS DE RODAGEM  6 - SERVIÇOS DE UTILIDADE PÚBLICA  15.452 - Urbanismo / Serviços Urbanos  2.044 - MANUTENÇÃO E AMPLIAÇÃO DA ILUMINAÇÃO PÚBLICA  117 - 4.4.90.00.00.00.00.00 - APLICAÇÕES DIRETAS - 1.701.0000.0064 - TRANSF. DE CONVÊNIOS ESTADO/OUTROS.......R$ 150.000,00  Parágrafo único. Os recursos destinados aos créditos do artigo anterior, no que se refere aos recursos vinculados, correrão por conta do excesso de arrecadação - SCC - 4205/2025, creditados na Conta Corrente nº 31.681-4, ag. 2357-4 do Banco do Brasil.Art. 2º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 14 de abril de 2026.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicado e registrado em 14 de abril de 2026.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

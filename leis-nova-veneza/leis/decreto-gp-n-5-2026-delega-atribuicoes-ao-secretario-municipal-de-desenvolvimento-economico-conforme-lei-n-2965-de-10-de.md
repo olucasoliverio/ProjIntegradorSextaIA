@@ -1,0 +1,14 @@
+# DECRETO GP Nº 05, DE 30 DE JANEIRO DE 2026.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 03/02/2026
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2026/1/5/decreto-gp-n-5-2026-delega-atribuicoes-ao-secretario-municipal-de-desenvolvimento-economico-conforme-lei-n-2965-de-10-de-agosto-de-2022-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 05, DE 30 DE JANEIRO DE 2026. "DELEGA ATRIBUIÇÕES AO SECRETÁRIO MUNICIPAL DE DESENVOLVIMENTO ECONÔMICO CONFORME LEI Nº 2.965, DE 10 DE AGOSTO DE 2022, E DÁ OUTRAS PROVIDÊNCIAS."ÂNGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e;CONSIDERANDO que o Decreto GP nº 11, de 03 de março de 2023 autoriza o funcionamento da Sala do Empreendedor no âmbito da administração pública do Município de Nova Veneza/SC;CONSIDERANDO que o Art. 18 da Lei Ordinária nº 2.965, de 10 de agosto de 2022 criou no quadro de pessoal do Poder Executivo do Município de Nova Veneza, o cargo de provimento em comissão de Diretor do Departamento Municipal da Sala do Empreendedor, vinculado à Secretaria Municipal de Planejamento e Urbanismo, integrando o Anexo VI da Lei Municipal nº 1.830/2007, atualmente exercido pela servidora Laura Mezari Preis, nomeada pelo Decreto DP nº 124, de 03 de fevereiro de 2025.CONSIDERANDO que o Art. 1º do Decreto GP nº 11, de 03 de março de 2023 estabelece as atribuições da Sala do Empreendedor, dentre elas, a de emitir certidões, declarações, alvarás de funcionamento e demais documentos inerentes a abertura, funcionamento e acompanhamento das empresas, DECRETA:Art. 1º Delega ao Secretário Municipal de Desenvolvimento Econômico Jadson Vandré Spilere, nomeado através do Decreto DP nº 541, de 29 de agosto de 2025, para atuação individual ou em conjunto, as atribuições inerentes ao Departamento Municipal da Sala do Empreendedor, atualmente exercidas pela servidora Laura Mezari Preis, nomeada pelo Decreto DP nº 124, de 03 de fevereiro de 2025, em especial de emitir certidões, declarações, alvarás de funcionamento e demais documentos inerentes a abertura, funcionamento e acompanhamento das empresas.Art. 2º Este Decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrárioNova Veneza, SC, 30 de janeiro de 2026.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicado e Registrado em 30 de janeiro de 2026.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

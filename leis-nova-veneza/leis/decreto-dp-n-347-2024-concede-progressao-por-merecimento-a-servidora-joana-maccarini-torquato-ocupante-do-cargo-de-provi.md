@@ -1,0 +1,14 @@
+# DECRETO DP Nº 347, DE 19 DE JULHO DE 2024.
+
+**Tipo:** DECRETO DP Nº
+**Número:** 
+**Data:** 07/08/2024
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-dp/2024/35/347/decreto-dp-n-347-2024-concede-progressao-por-merecimento-a-servidora-joana-maccarini-torquato-ocupante-do-cargo-de-provimento-efetivo-de-agente-administrativo-ii
+
+## Texto Completo
+
+DECRETO DP Nº 347, DE 19 DE JULHO DE 2024.Concede Progressão por Merecimento a servidora, JOANA MACCARINI TORQUATO, ocupante do cargo de provimento efetivo de Agente Administrativo II.ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, usando das atribuições legais e de conformidade com o Art. 17 da Lei nº 1.830, de 26 de junho de 2007 e Art. 11, § 2º, da Lei Complementar 002 de 03 de abril de 2012, DECRETA:Art. 1º Fica concedido PROGRESSÃO POR MERECIMENTO a servidora, JOANA MACCARINI TORQUATO, ocupante do cargo de provimento efetivo de Agente Administrativo II, pela comprovação de participação em 207,30 (duzentas e sete horas e trinta minutos) horas de curso de atualização e ou aperfeiçoamento conforme certificados: Licitação e Contratos Administrativos 08 (oito) horas, Curso de Formação e Atualização de Pregoeiros 20 (vinte) horas, Formação e Atualização de Pregoeiros Pregão Eletrônico 20 (vinte) horas, Curso Básico Licitações Públicas 15 (quinze) horas, Aspectos Relevantes da Nova Lei de Licitações 15 (quinze) horas, Atualização e Formação de Pregoeiros e Equipe de Apoio conforme Nova Lei de Licitações 14 (quatorze), Nova Lei de Licitações - 4º turma 14 (quatorze), Regulamentação e Implantação da Nova Lei de Licitações 04 (quatro) horas, Formação de Agentes de Contatação e Pregoeiro de acordo com a Nova Lei de Licitações 14 (quatorze) horas, Aspectos Destacados da Nova Lei de Licitações e Suas Regulamentações 03:30 (três horas e 30 minutos) horas, Principais Dúvidas da Nova Lei de Licitações 04(quatro) horas, Pregoeiros SUMMIT - Edição 2024 24 (vinte e quatro) horas, Pregoeiros SUMMIT - Edição 2023 20 (vinte) horas e Oficina de Elaboração de Editais de Licitação de Acordo com a Lei 14.133/2021 12 (doze) horas, consistindo na movimentação da referência 12 para referência 13, com vencimentos fixados em Lei.Art. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza/SC, de 19 de julho de 2024.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalRegistrada e publicada, em 19 de julho de 2024.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

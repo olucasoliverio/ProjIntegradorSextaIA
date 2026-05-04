@@ -1,0 +1,13 @@
+# DECRETO GP Nº 09, DE 12 DE FEVEREIRO DE 2026.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 18/02/2026
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2026/1/9/decreto-gp-n-9-2026-declara-de-utilidade-publica-para-fins-de-instituicao-de-servidao-administrativa-uma-area-de-terra-localizada-no-municipio-de-nova-veneza-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 09, DE 12 DE FEVEREIRO DE 2026. "DECLARA DE UTILIDADE PÚBLICA, PARA FINS DE INSTITUIÇÃO DE SERVIDÃO ADMINISTRATIVA, UMA ÁREA DE TERRA LOCALIZADA NO MUNICÍPIO DE NOVA VENEZA E DÁ OUTRAS PROVIDÊNCIAS."EDÉSIO SPILERE, Prefeito Municipal em exercício de Nova Veneza, no uso das atribuições que lhe confere a Lei Orgânica Municipal e fundamentada no art. 5º., inciso XXIII da Constituição Federal e, especialmente, no art. 40 do Decreto-Lei nº 3.365/1941:DECRETA:Art. 1º Fica declarada de utilidade pública, para fins de instituição de servidão administrativa de forma gratuita e permanente, uma área de terra de 577,30 m². A referida área situa-se dentro do imóvel rural matriculado sob o nº 1.256 nº 2º Registro de Imóveis da Comarca de Criciúma/SC, de propriedade de Jonas Antonio Semprebom e Daniel de Mattia Semprebom.Art. 2º A servidão administrativa descrita no artigo anterior destina-se exclusivamente à:  I - Construção, manutenção e conservação da obra pública denominada "Monumento dos Tropeiros".  II - Instalação de infraestrutura necessária, incluindo redes de abastecimento de água e energia elétrica.  III - Trânsito de equipes para serviços de conservação e limpeza da faixa de segurança.Art. 3º A área objeto da servidão apresenta as seguintes confrontações e medidas: Norte: 22,85m com os proprietários, Sul: 22,85m com os proprietários, Leste: 19,50m com os proprietários, Oeste: 51,70m com a Rodovia Pietro Tomasi.Art. 4º Fica o Município de Nova Veneza autorizado a invocar o caráter de urgência para fins de imissão provisória na posse, conforme facultado pela legislação federal vigente.Art. 5º As despesas decorrentes da execução deste Decreto, incluindo taxas cartorárias e registros, correrão por conta de dotações orçamentárias próprias do Município.Art. 6º Este Decreto entra em vigor na data de sua publicação.Nova Veneza, SC, 12 de fevereiro de 2026.EDÉSIO SPILEREPrefeito Municipal em exercícioPublicado e Registrado em 12 de fevereiro de 2026.ROBERTO JOSÉ SAVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

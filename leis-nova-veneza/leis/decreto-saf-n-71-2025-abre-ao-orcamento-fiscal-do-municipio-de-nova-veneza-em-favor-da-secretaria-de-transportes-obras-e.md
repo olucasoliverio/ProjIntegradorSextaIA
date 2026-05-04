@@ -1,0 +1,13 @@
+# DECRETO SAF Nº 71, DE 18 DE DEZEMBRO DE 2025.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 19/12/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2025/8/71/decreto-saf-n-71-2025-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-de-transportes-obras-e-servicos-urbanos-credito-especial-no-valor-de-r-150000-00-por-conta-de-provavel-excesso-de-arrecadacao-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 71, DE 18 DE DEZEMBRO DE 2025."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA DE TRANSPORTES, OBRAS E SERVIÇOS URBANOS, CRÉDITO ESPECIAL NO VALOR DE R$ 150.000,00, POR CONTA DE PROVÁVEL EXCESSO DE ARRECADAÇÃO, E DÁ OUTRAS PROVIDÊNCIAS."ÂNGELA MARIANA PANATO GHISLANDI DE MELO, Prefeita Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 3.189, de 17 de dezembro de 2025, DECRETA:Art. 1º Fica inserido elemento de despesa específico e fica aberto crédito especial ao Orçamento da Unidade Prefeitura Municipal de Nova Veneza (Lei Municipal nº 3.189, de 17 de dezembro de 2025), por conta do excesso de arrecadação do exercício em curso, na forma do artigo 43, II, da Lei Federal 4.320/64, no que se refere aos recursos vinculados e por conta de excesso de arrecadação, até o valor de R$ 150.000,00 (cento e cinquenta mil reais), conforme abaixo especificado:Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA  10.000 - SECRETARIA DE TRANSP, OBRAS E SERV. URB.  10.001 - DEPARTAMENTO DE ESTRADAS DE RODAGEM  6 - SERVIÇOS DE UTILIDADE PÚBLICA.  15.452 - Urbanismo / Serviços Urbanos  2.044 - MANUTENÇÃO E AMPLIAÇÃO DA ILUMINAÇÃO PÚBLICA  4.4.90.00.00.00.00.00 - APLICAÇÕES DIRETAS - 1.701.0000.0064 TRANSFERÊNCIA DE CONVÊNIOS ESTADO/OUTROS....R$ 150.000,00Art. 2º Os recursos destinados aos créditos do artigo anterior, no que se refere aos recursos vinculados, correrão por conta do excesso de arrecadação - SCC - 4205/2025, creditados na Conta Corrente nº 31.681-4, ag. 2357-4 do Banco do Brasil.Art. 3º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 18 de dezembro de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicado e registrado em 18 de dezembro de 2025.ROBERTO JOSÉ SAVIO CAETANO Secretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,14 @@
+# LEI Nº 3.135, DE 10 DE JULHO DE 2025.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 11/07/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2025/314/3135/lei-ordinaria-n-3135-2025-institui-a-semana-municipal-da-agricultura-no-municipio-de-nova-veneza-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 3.135, DE 10 DE JULHO DE 2025.Institui a Semana Municipal da Agricultura no Município de Nova Veneza e dá outras providências.A PREFEITA MUNICIPAL DE NOVA VENEZA - SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara e Vereadores aprovou e ela sanciona a seguinte Lei:Art. 1º Fica instituída e inserida no calendário das atividades oficiais do município a Semana Municipal da Agricultura, a ser realizada anualmente na semana que englobe o dia 28 de julho, em alusão ao Dia Nacional do Agricultor.Art. 2º A Semana Municipal da Agricultura tem por objetivos:  I - valorizar os agricultores e agricultoras do município, com destaque à agricultura familiar;  II - promover ações de integração entre o campo e a cidade;  III - fomentar o desenvolvimento sustentável e a inovação no setor agrícola;  IV - incentivar o consumo de produtos locais e a geração de renda no meio rural;  V - debater políticas públicas voltadas ao fortalecimento da agricultura municipal.  VI - Fortalecer, apoiar e incentivar o desenvolvimento da agricultura familiar no âmbito municipal e suas formas associativas no que tange as cooperativas de produção, gestão, comercialização, processamento e agro industrialização, atuantes no munícipio.Art. 3º Durante a Semana Municipal da Agricultura poderão ser realizadas:  I - feiras e mostras de produtos agropecuários e agroindustriais locais;  II - oficinas, cursos, palestras e rodas de conversa sobre práticas agrícolas, comercialização e cooperativismo;  III - visitas técnicas a propriedades rurais, agroindústrias e associações;  IV - atividades culturais, educativas e gastronômicas com foco na valorização da vida no campo;  V - Ações educativas nas escolas, abordando a importância da agricultura para o município, para a alimentação saudável e para a sustentabilidade ambiental.  VI - Debates sobre políticas públicas, programas de incentivo, linhas de crédito, inovação tecnológica, agroecologia e desenvolvimento sustentável  VII - Homenagem a agricultores e agricultoras locais, com o objetivo de reconhecer sua dedicação, o trabalho no setor agrícola e a contribuição para o desenvolvimento econômico, social e cultural do município.Art. 4º Esta Lei entra em vigor na data de sua publicação.Nova Veneza, SC, 10 de julho de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicada e registrada em 10 de julho de 2025.
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

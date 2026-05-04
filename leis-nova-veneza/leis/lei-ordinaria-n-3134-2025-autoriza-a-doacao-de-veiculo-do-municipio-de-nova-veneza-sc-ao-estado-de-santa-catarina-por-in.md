@@ -1,0 +1,14 @@
+# LEI Nº 3.134, DE 10 DE JULHO DE 2025.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 11/07/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2025/314/3134/lei-ordinaria-n-3134-2025-autoriza-a-doacao-de-veiculo-do-municipio-de-nova-veneza-sc-ao-estado-de-santa-catarina-por-intermedio-do-fundo-de-melhoria-da-policia-civil-funpec-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 3.134, DE 10 DE JULHO DE 2025.AUTORIZA A DOAÇÃO DE VEÍCULO DO MUNICÍPIO DE NOVA VENEZA/SC, AO ESTADO DE SANTA CATARINA, POR INTERMÉDIO DO FUNDO DE MELHORIA DA POLÍCIA CIVIL - FUNPEC E DÁ OUTRAS PROVIDÊNCIAS.A PREFEITA MUNICIPAL DE NOVA VENEZA - SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara e Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Poder Executivo autorizado a doar ao Estado de Santa Catarina, por intermédio do Fundo de Melhoria da Polícia Civil - FUMPC, CNPJ nº 07.188.579/0001-07, o seguinte bem móvel: um veículo I/NISSAN FRONTIER ATK 4X4, cor preta, Placas SXI 7H27, ano de fabricação 2024, modelo 2025, RENAVAM 1403712406 e chassi 8ANBD33F0SL963302.Art. 2º Para a aquisição do veículo de que trata o art. 1º. foram utilizados recursos do Convênio de Trânsito nº 0151/DETRAN/ASJUR/2020, firmado entre o município de Nova Veneza e a Polícia Civil de Santa Catarina, nos termos da Lei Municipal nº 3.119, de 28 de novembro de 2024.Art. 3º O veículo objeto da presente lei é destinado aos serviços de investigação e demais diligências levadas a feito pela Polícia Civil em Nova Veneza/SC.Art. 4º As despesas decorrentes da manutenção, conservação, licenciamento, seguro e de sua utilização, serão de responsabilidade da Polícia Civil do Estado de Santa Catarina, bem como, à conta das receitas provenientes de Convênio de Trânsito nº 0151/DETRAN/ASJUR/2020, celebrado entre a Polícia do Estado de Santa Cataria e o Município Nova Veneza.  Parágrafo único. A Polícia Civil do Estado de Santa Catarina ficará responsável pelo fornecimento do pessoal necessário à execução do serviço e pelo bom uso do veículo.Art. 5º As despesas decorrentes da execução da presente lei correrão por conta de dotação própria do orçamento do Estado de Santa CatarinaArt. 6º A presente lei entra em vigor na data de sua publicação, revogando-se as disposições em contrário.Nova Veneza, SC, 10 de julho de 2025.ÂNGELA MARIANA PANATO GHISLANDI DE MELOPrefeita MunicipalPublicada e registrada em 10 de julho de 2025.ROBERTO JOSÉ SÁVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.
