@@ -1,0 +1,14 @@
+# DECRETO SAF Nº 72, DE 16 DE SETEMBRO DE 2024.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 20/09/2024
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2024/8/72/decreto-saf-n-72-2024-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-obras-e-servicos-urbanos-credito-suplementar-no-valor-de-r-277000-00-por-conta-da-transposicao-de-recursos-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 72, DE 16 DE SETEMBRO DE 2024."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE OBRAS E SERVIÇOS URBANOS, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 277.000,00, POR CONTA DA TRANSPOSIÇÃO DE RECURSOS, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 3.105, de 13 de setembro de 2024, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 3.105, de 13 de setembro de 2024), em favor da Secretaria Municipal de Transportes, Obras e Serviços Urbanos, crédito suplementar no valor R$ 277.000,00 (duzentos e setenta e sete mil reais), para atender a programação abaixo discriminada: Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA 10.002 - SECRETARIA DE TRANSP. OBRAS E SERV. URB. / DEP. DE OBRAS E SERV. URBANOS Proj./Ativ. 1.083: Aquisição de área e construção de parque público Aplicação: (86) 4.4.90.00.00.00.00.00 - Aplicações Diretas - 1.500.0000.0000 - Recursos ordinários.... R$ 277.000,00Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º decorrem da anulação parcial da seguinte dotação orçamentária: Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA 10.001 - SECRETARIA DE TRANSP. OBRAS E SERV. URB. / DEPART. DE EST. DE RODAGEM Proj./Ativ. 1.047: Construção, reconstr. bueiros, pontes e drenagens Aplicação: (84) 4.4.90.00.00.00.00.00 - Aplicações diretas - 1.500.0000.0000 - Recursos ordinários....R$ 254.000,00 Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA 10.001 - SECRETARIA DE TRANSP. OBRAS E SERV. URB. / DEPART. DE EST. DE RODAGEM Proj./Ativ. 1.040: Pavimentação de vias, rodovias logradouros Aplicação: (81) 4.4.90.00.00.00.00.00 - Aplicações diretas - 1.500.0000.0000 - Recursos ordinários....R$ 23.000,00Art. 3º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 16 de setembro de 2024.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 16 de setembro de 2024.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

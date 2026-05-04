@@ -1,0 +1,14 @@
+# DECRETO SAF Nº 103, DE 12 DE DEZEMBRO DE 2024.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 16/12/2024
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2024/11/103/decreto-saf-n-103-2024-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-educacao-credito-suplementar-no-valor-de-r-160000-00-por-conta-da-anulacao-de-saldos-de-dotacoes-orcamentarias-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 103, DE 12 DE DEZEMBRO DE 2024."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE EDUCAÇÃO, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 160.000,00, POR CONTA DA ANULAÇÃO DE SALDOS DE DOTAÇÕES ORÇAMENTÁRIAS, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 8º, a Lei Municipal nº 3.060, de 30 de novembro de 2023, DECRETAArt. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 3.060, de 30 de novembro de 2023), em favor da Secretaria Municipal de Educação, crédito suplementar no valor de R$ 160.000,00 (cento e sessenta mil reais), por conta da anulação de saldos de dotações orçamentárias, para atender a programação abaixo discriminada: Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA 07.001 - SEC. DE EDUCAÇÃO / DEP. DE EDUCAÇÃO INFANTIL E FUNDAMENTAL Proj./Ativ. 2.013: Manutenção da educação básica Aplicação: (32) 3.1.90.00.00.00.00.00 - Aplicações Diretas - 1.540.1070.0018 - Transferência do FUNDEB 70% ....R$ 110.000,00 Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA 07.001 - SEC. DE EDUCAÇÃO / DEP. DE EDUCAÇÃO INFANTIL E FUNDAMENTAL Proj./Ativ. 2.013: Manutenção da educação básica Aplicação: (32) 3.1.90.00.00.00.00.00 - Aplicações Diretas - 1.540.0000.0019 - Transferência do FUNDEB 30% ....R$ 50.000,00Art. 2º Os recursos necessários à abertura do crédito de que trata o caput doArt. 1º decorrem da anulação parcial da seguinte dotação orçamentária: Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA 07.001 - SEC. DE EDUCAÇÃO / DEP. DE EDUCAÇÃO INFANTIL E FUNDAMENTAL Proj./Ativ. 2.013: Manutenção da educação básica Aplicação: (33) 3.3.90.00.00.00.00.00 - Aplicações Diretas - 1.540.0000.0019 - Transferência do FUNDEB 30% ....R$ 160.000,00Art. 3º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 12 de dezembro de 2024.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e registrado em 12 de dezembro de 2024.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

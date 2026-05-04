@@ -1,0 +1,14 @@
+# DECRETO SAF Nº 44, DE 19 DE JUNHO DE 2024.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 20/06/2024
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2024/5/44/decreto-saf-n-44-2024-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-educacao-credito-suplementar-no-valor-de-r-4190-00-por-conta-da-anulacao-de-saldos-de-dotacoes-orcamentarias-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 44, DE 19 DE JUNHO DE 2024."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE EDUCAÇÃO, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 4.190,00, POR CONTA DA ANULAÇÃO DE SALDOS DE DOTAÇÕES ORÇAMENTÁRIAS, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 8º, a Lei Municipal nº 3.060, de 30 de novembro de 2023, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 3.060, de 30 de novembro de 2023), em favor da Secretaria Municipal de Educação, crédito suplementar no valor de R$ 4.190,00 (quatro mil, cento e noventa reais), por conta da anulação de saldos de dotações orçamentárias, para atender a programação abaixo discriminada: Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA 07.001 - SEC. DE EDUCAÇÃO / DEPART. DE EDUCAÇÃO INF. E FUNDAMENTAL Proj./Ativ. 2.020: Manutenção de outros níveis de ensino Aplicação: (42) 3.3.50.00.00.00.00.00 - Transferências a instituições privadas - 1.500.1001.0001 - Educação - 25% Arrecadação de impostos....R$ 4.190,00Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º decorrem da anulação parcial da seguinte dotação orçamentária: Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA 07.001 - SEC. DE EDUCAÇÃO / DEPART. DE EDUCAÇÃO INF. E FUNDAMENTAL Proj./Ativ. 2.020: Manutenção de outros níveis de ensino Aplicação: (41) 3.1.90.00.00.00.00.00 - Aplicações diretas - 1.500.1001.0001 - Educação - 25% Arrecadação de impostos....R$ 4.190,00Art. 3º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 19 de junho de 2024.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 19 de junho de 2024.  1. OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

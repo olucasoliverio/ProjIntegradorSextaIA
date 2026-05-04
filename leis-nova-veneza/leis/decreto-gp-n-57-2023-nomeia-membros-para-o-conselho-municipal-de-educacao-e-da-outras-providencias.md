@@ -1,0 +1,14 @@
+# DECRETO GP Nº 57, DE 27 DE SETEMBRO DE 2023.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 29/09/2023
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2023/6/57/decreto-gp-n-57-2023-nomeia-membros-para-o-conselho-municipal-de-educacao-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 57, DE 27 DE SETEMBRO DE 2023. "NOMEIA MEMBROS PARA O CONSELHO MUNICIPAL DE EDUCAÇÃO, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 1.109, de 10 de novembro de 1992, DECRETA:Art. 1º Ficam nomeados para o Conselho Municipal de Educação - CME, criado pela Lei Municipal nº 1.109, de 10 de novembro de 1992, os seguintes membros:  I - Representante da Secretaria Municipal de Educação:TITULAR - Alícia Semira Pasquali;SUPLENTE - Bibianna Martins Marinho.  II - Representante da Câmara Municipal de Vereadores:TITULAR - Elisabete Teresa Bortolotto;SUPLENTE - Maykon Minatto Michels.  III - Representante dos Professores da Rede Municipal de Ensino:TITULAR - Suzana Marilda Correa da Silva;SUPLENTE - Daniel Galvão Amides.  IV - Representante dos Professores do Estado, domiciliado no município;TITULAR - Alessandra Vilpert Damiani;SUPLENTE - Katia Rejane da Silva.  V - Representante da Associação de Pais e Professores do município:TITULAR - Morgana Baldessar Zanardo;SUPLENTE - Kátia Alves Rampinelli Vitali.  VI - Representante do Sindicato dos Trabalhadores Rurais de Nova Veneza:TITULAR - Evandro Boaroli;SUPLENTE - Valcirleia Alexandre Presa  VII - Representante da Empresa de Pesquisa Agropecuária e Difusão de Tecnologia de Santa Catarina S. A - EPAGRI:TITULAR - Daniel Mendonça;SUPLENTE - Rodrigo Feltrin Fernandes.  VIII - Representante da Associação Feminina de Assistência Veneziana - AFAVE:TITULAR - Josieli Damiani Gava Alexandre;SUPLENTE - Juliane Maravai Ferro.  IX - Representante da Secretaria Municipal de Saúde:TITULAR - César Augusto Pasetto;SUPLENTE - Fátima Maria Pessetti Paseto.Art. 2º As nomeações não acarretarão ônus aos cofres públicos.Art. 3º Este Decreto entra em vigor na data de sua publicação.Art. 4º Revogam-se as disposições em contrário, em especial o Decreto GP nº 009, de 08 de março de 2021.Nova Veneza, SC, 27 de setembro de 2023.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e registrado em 27 de setembro de 2023.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

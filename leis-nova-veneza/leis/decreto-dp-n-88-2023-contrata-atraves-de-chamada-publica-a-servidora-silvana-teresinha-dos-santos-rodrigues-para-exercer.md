@@ -1,0 +1,13 @@
+# DECRETO DP Nº 88, DE 13 DE FEVEREIRO DE 2023.
+
+**Tipo:** DECRETO DP Nº
+**Número:** 
+**Data:** 22/02/2023
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-dp/2023/9/88/decreto-dp-n-88-2023-contrata-atraves-de-chamada-publica-a-servidora-silvana-teresinha-dos-santos-rodrigues-para-exercer-o-cargo-em-provimento-temporario-de-orientador-educacional
+
+## Texto Completo
+
+DECRETO DP Nº 88, DE 13 DE FEVEREIRO DE 2023.Contrata através de Chamada Pública a servidora, SILVANA TERESINHA DOS SANTOS RODRIGUES, para exercer o cargo em provimento temporário de Orientador Educacional.ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza/SC, usando das atribuições legais e de conformidade com a Lei Orgânica Municipal, Lei Municipal nº 1.416 de 29 de dezembro de 1999 e Chamada Pública 002/2023, DECRETA:Art. 1º Fica contratada através de Chamada Pública a servidora, SILVANA TERESINHA DOS SANTOS RODRIGUES, para exercer o cargo em provimento temporário de Orientador Educacional, 40 (quarenta) horas semanais, com remuneração fixada em Lei, na Escola Básica Municipal Líbero Ugioni e na Escola Municipal Vítor Savi, com término em 31 de julho de 2023.Art. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza/SC, 13 de fevereiro de 2023.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalRegistrada e publicada, em 13 de fevereiro de 2023.HÉRICA FELISBERTOSecretária Municipal de Educação
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

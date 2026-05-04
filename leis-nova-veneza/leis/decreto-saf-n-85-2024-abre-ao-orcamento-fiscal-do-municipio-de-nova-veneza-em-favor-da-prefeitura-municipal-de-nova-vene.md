@@ -1,0 +1,13 @@
+# DECRETO SAF Nº 85, DE 25 DE OUTUBRO DE 2024.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 06/01/2025
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2024/9/85/decreto-saf-n-85-2024-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-prefeitura-municipal-de-nova-veneza-credito-suplementar-no-valor-de-r-20000-00-por-conta-da-anulacao-de-saldos-de-dotacoes-orcamentarias-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 85, DE 25 DE OUTUBRO DE 2024."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA PREFEITURA MUNICIPAL DE NOVA VENEZA, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 20.000,00, POR CONTA DA ANULAÇÃO DE SALDOS DE DOTAÇÕES ORÇAMENTÁRIAS, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 8º., a Lei Municipal nº 3.060, de 30 de novembro de 2023, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 3.060, de 30 de novembro de 2023), em favor da Prefeitura Municipal de Nova Veneza, crédito suplementar no valor de R$ 20.000,00 (vinte mil reais), por conta da anulação de saldos de dotações orçamentárias, para atender a programação abaixo discriminada: Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA 02.001 - GESTÃO DO CENTRO ADMINISTRATIVO Proj./Ativ. 2.010: Manutenção dos serviços de planejamento Aplicação: (17) 3.3.90.00.00.00.00.00 - Aplicações diretas - 1.500.0000.0000 - Recursos ordinários....R$ 20.000,00Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º. decorrem da anulação parcial da seguinte dotação orçamentária: Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA 02.001 - GESTÃO DO CENTRO ADMINISTRATIVO Proj./Ativ. 2.010: Manutenção dos serviços de planejamento Aplicação: (14) 3.1.71.00.00.00.00.00 - Transf. a consórcios públicos - 1.500.0000.0000 - Recursos ordinários....R$ 20.000,00Art. 3º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 25 de outubro de 2024.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 25 de outubro de 2024.  1. OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

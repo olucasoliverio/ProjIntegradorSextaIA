@@ -1,0 +1,14 @@
+# LEI Nº 2.954, DE 20 DE JULHO DE 2022.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 01/05/2019
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2022/296/2954/lei-ordinaria-n-2954-2022-concede-revisao-geral-anual-e-reajuste-salarial-aos-servidores-da-camara-de-vereadores-de-nova-veneza-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2.954, DE 20 DE JULHO DE 2022. "CONCEDE REVISÃO GERAL ANUAL E REAJUSTE SALARIAL AOS SERVIDORES DA CÂMARA DE VEREADORES DE NOVA VENEZA E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica concedido o acréscimo de 16,61% (dezesseis vírgula sessenta e um por cento), a título de revisão geral anual, nos termos do artigo 37, inciso X, da Constituição da República Federativa do Brasil, correspondente à recomposição que compreende o período de 01/05/2019 a 30/04/2022, aplicado sobre a remuneração dos servidores públicos municipais do Poder Legislativo, nestes incluídos servidores efetivos, cargos comissionados (de livre nomeação/exoneração).Art. 2º Fica concedido o acréscimo de 7,48% (sete virgula quarenta e oito por cento), a título de reajuste salarial (ganho real), aplicado sobre os valores dos vencimentos mensais dos servidores públicos municipais do Poder Legislativo, nestes incluídos servidores efetivos e cargos comissionados (de livre nomeação/exoneração), exceto agentes políticos.Art. 3º Fica concedido o acréscimo de 15,11% (quinze vírgula onze por cento), a título de revisão geral anual, nos termos do artigo 37, inciso X, da Constituição da República Federativa do Brasil, correspondente à recomposição que compreende o período de 01/01/2021 a 30/04/2022, aplicado sobre a remuneração dos agentes políticos do Poder Legislativo.  § 1º A revisão de que trata o caput reflete 100% (cem por cento) da variação acumulada do INPC correspondente ao período de 01/01/2021 a 30/04/2022.Art. 4º A presente Lei entra em vigor na data de sua publicação, retroagindo seus efeitos a partir de 1º de maio de 2022.Art. 5º As despesas desta lei correrão por conta de dotação própria do orçamento vigente.Nova Veneza, SC, 20 de julho de 2022.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 20 de julho de 2022.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

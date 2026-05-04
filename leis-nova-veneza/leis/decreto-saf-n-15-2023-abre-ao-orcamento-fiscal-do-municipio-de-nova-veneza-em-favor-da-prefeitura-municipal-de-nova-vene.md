@@ -1,0 +1,13 @@
+# DECRETO SAF Nº 15, DE 18 DE MAIO DE 2023.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 24/10/2023
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2023/2/15/decreto-saf-n-15-2023-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-prefeitura-municipal-de-nova-veneza-credito-especial-suplementar-no-valor-de-r-990000-00-por-conta-da-transposicao-de-recursos-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 15, DE 18 DE MAIO DE 2023."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA PREFEITURA MUNICIPAL DE NOVA VENEZA, CRÉDITO ESPECIAL SUPLEMENTAR NO VALOR DE R$ 990.000,00, POR CONTA DA TRANSPOSIÇÃO DE RECURSOS, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 3.015, de 17 de maio de 2023, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 3.015, de 17 de maio de 2023), em favor da Prefeitura Municipal de Nova Veneza, crédito especial suplementar no valor de R$ 990.000,00 (novecentos e noventa mil reais), para atender a programação abaixo discriminada: Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA 11.001 - SECRETARIA DE DESENVOLVIMENTO ECONÔMICO / DEPARTAMENTO DE DESENVOLVIMENTO ECONÔMICO Proj./Ativ. 1.050: Incentivos para implantação e ampliação de indústrias Aplicação: (__) 3.3.90.00.00.00.00.00 - Aplicações diretas - 1.500.0000.0000 - Recursos Ordinários....R$ 990.000,00Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º decorrem da anulação parcial das seguintes dotações orçamentárias: Entidade: PREFEITURA MUNICIPAL DE NOVA VENEZA 11.001 - SECRETARIA DE DESENVOLVIMENTO ECONÔMICO / DEPARTAMENTO DE DESENVOLVIMENTO ECONÔMICO Proj./Ativ. 1.050: Incentivos para implantação e ampliação de indústrias Aplicação: (79) 4.4.90.00.00.00.00.00 - Aplicações diretas - 1.500.0000.0000 - Recursos Ordinários....R$ 990.000,00Art. 3º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 18 de maio de 2023.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e registrado em 18 de maio de 2023.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

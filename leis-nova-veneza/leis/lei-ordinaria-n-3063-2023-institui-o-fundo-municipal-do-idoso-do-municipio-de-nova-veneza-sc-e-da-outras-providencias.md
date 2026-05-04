@@ -1,0 +1,14 @@
+# LEI Nº 3.063, DE 30 DE NOVEMBRO DE 2023.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 01/12/2023
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2023/307/3063/lei-ordinaria-n-3063-2023-institui-o-fundo-municipal-do-idoso-do-municipio-de-nova-veneza-sc-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 3.063, DE 30 DE NOVEMBRO DE 2023. "INSTITUI O FUNDO MUNICIPAL DO IDOSO DO MUNICÍPIO DE NOVA VENEZA/SC, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica criado o Fundo Municipal do Idoso (FMI) do Município de Nova Veneza, instrumento de captação, repasse e aplicação de recursos destinados a proporcionar suporte financeiro na implantação, na manutenção e no desenvolvimento de projetos, programas e ações dirigidas ao idoso no Município de Nova Veneza - Santa Catarina obedecerá às seguintes normas:  I - o FMI será vinculado a Secretaria de Assistência Social;  II - os recursos destinados ao FMI serão depositados em Instituições Financeiras em conta especial sob denominação "Fundo Municipal do Idoso";  III - a destinação dos recursos financeiros do FMI, serão liberados para atender a realização de projetos, programas e atividades, aprovadas de acordo com as prioridades estabelecidas pelo Conselho.Art. 2º Constituirão receitas do Fundo Municipal do Idoso:  I - as transferências do Município;  II - as transferências da União, do Estado, de seus órgãos e suas respectivas autarquias, fundações, fundos, empresas públicas e sociedades de economia mista;  III - as receitas de doações, legados, contribuições em dinheiro, valores, bens moveis e imóveis que venha a receber de pessoas físicas ou jurídicas ou de organismos públicos ou privados, nacionais ou internacionais;  IV - o produto de aplicações financeiras dos recursos disponíveis;  V - os valores das multas previstas na Lei Federal 10.741 de 1º de outubro de 2003;  VI - as rendas eventuais, inclusive resultantes de depósitos e aplicações de capital;  VII - as demais receitas destinadas ao FMI.Art. 3º O Prefeito do Município, mediante decreto, estabelecerá as normas relativas à estruturação, organização e operacionalização do FMI.Art. 4º Esta Lei entra em vigor na dará de sua publicação.Nova Veneza, SC, 30 de novembro de 2023.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 30 de novembro de 2023.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,13 @@
+# DECRETO GP Nº 16, DE 27 DE MARÇO DE 2023.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 24/10/2023
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2023/2/16/decreto-gp-n-16-2023-nomeia-membros-para-o-conselho-municipal-de-assistencia-social-cmas-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 16, DE 27 DE MARÇO DE 2023. "NOMEIA MEMBROS PARA O CONSELHO MUNICIPAL DE ASSISTÊNCIA SOCIAL - CMAS, E DÁ OUTRAS PROVIDÊNCIAS".ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 1.459, de 25 de dezembro de 2000, DECRETA:Art. 1º Ficam nomeados para o Conselho Municipal de Assistência Social - CMAS, criado pela Lei Municipal nº 1.459, de 29 de dezembro de 2000, os seguintes membros:  I - Representantes da Secretaria Municipal de Assistência Social:  a) TITULAR: Raimunda Edvania Alcântara Correia;  b) SUPLENTE: Silvana Ghellere Cavalheiro.  II - Representante da Secretaria Municipal de Educação:  a) TITULAR: Ivone Zocche;  b) SUPLENTE: Natalia Furlan.  III - Representante da Secretaria Municipal de Saúde:  a) TITULAR: Paula Pokamaja Teixeira;  b) SUPLENTE: Leonel Luiz Pesset Paseto.  IV - Representante da Secretaria Municipal de Administração de Finanças:  a) TITULAR: Joana Maccarini Torquato;  b) SUPLENTE: Leticia da Conceição Bonjiolo.  V - Representante dos usuários e/ou de organização de usuários de Assistência Social no âmbito municipal:  a) TITULAR: Karina Spillere Remor;  b) SUPLENTE: Luana Matilde Sorato.  VI - Representante de entidade e/ou organização de Assistência Social, no âmbito municipal:  a) TITULAR: Janaina Bordignon Policarpi;  b) SUPLENTE: Juliane Maravai Ferro.  VII - Representantes de entidade e/ou organização de Assistência Social, no âmbito municipal:  a) TITULAR: Laercio Luiz Gava;  b) SEGUNDA SUPLENTE: Ana Gonçalves Nuremberg.  VIII - Representante dos trabalhadores do setor:  a) TITULAR: Bruna Biava Spilere;  b) SUPLENTE: Teresinha Romagna.Art. 2º As nomeações não acarretarão ônus aos cofres públicos.Art. 3º Este Decreto entra em vigor na data de sua publicação.Art. 4º Revogam-se as disposições em contrário, em especial o Decreto Municipal nº 286, de 25 de julho de 2018.Nova Veneza, SC, 27 de março de 2023.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 27 de março de 2023.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

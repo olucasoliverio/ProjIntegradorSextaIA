@@ -1,0 +1,13 @@
+# DECRETO GP Nº 21, DE 13 DE ABRIL DE 2023.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 24/10/2023
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2023/3/21/decreto-gp-n-21-2023-nomeia-membros-para-o-conselho-municipal-do-idoso-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 21, DE 13 DE ABRIL DE 2023. "NOMEIA MEMBROS PARA O CONSELHO MUNICIPAL DO IDOSO, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 2.369, de 13 de junho de 2014, DECRETA:Art. 1º Ficam nomeados para o Conselho Municipal do Idoso - CMI, criado pela Lei Municipal nº 2.369, de 13 de junho de 2014, os seguintes membros:  I - Representante da Secretaria Municipal de Assistência Social:  a) Titular: Bruna Biava Spillere;  b) Suplente: Fátima de Souza Damin.  II - Representante da Secretaria Municipal de Saúde:  a) Titular: Jaqueline G. Macarini;  b) Suplente: Debora Scarpari Ribeiro.  III - Representante da Secretaria Municipal de Educação:  a) Titular: Scheila Arigoni Pizzolo Mondardo;  b) Suplente: Bibianna Martins Marinho.  IV - Representante da Secretaria Municipal de Cultura, Esporte e Turismo:  a) Titular: Eloir Minatto;  b) Suplente: Geraldo Luz.  V - Representante da Secretaria Municipal de Agricultura:  a) Titular: Edgar Preis;  b) Suplente: Odair José Coral.  VI - Representante da Associação Coral São Marcos:  a) Titular: Lourdes Maravai Ferro;  b) Suplente: Maria de Lourdes Frigo Amboni.  VII - Representante do Grupo da Terceira Idade da Esperança (Sede):  a) Titular: Marilene Gava;  b) Suplente: Cleide Bratti.  VIII - Representante da Associação Feminina de Assistência Veneziana (AFAVE):  a) Titular: Jessica Cristina Lodovich;  b) Suplente: Tamiris Zanete Damiani.  IX - Representante do Sindicato dos Trabalhadores Rurais de Nova Veneza:  a) Titular: Evandro Boaroli;  b) Suplente: Valcirleia Alexandre Presa.  X - Representante do Grupo da Terceira Idade da Amizade (São Bento Baixo):  a) Titular: Solani Bortolotto Kestering;  b) Suplente: Luzia Cruz.Art. 2º As nomeações não acarretarão ônus aos cofres públicos.Art. 3º Este Decreto entra em vigor na data de sua publicação.Art. 4º Revogam-se as disposições em contrário, em especial o Decreto Municipal nº 422, de 1º de setembro de 2017.Nova Veneza, SC, 13 de abril de 2023.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 13 de abril de 2023.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

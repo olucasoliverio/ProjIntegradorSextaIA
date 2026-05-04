@@ -1,0 +1,13 @@
+# DECRETO GP Nº 23, DE 14 DE ABRIL DE 2023.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 24/10/2023
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2023/3/23/decreto-gp-n-23-2023-determina-o-encerramento-do-pad-n-001-2023-mediante-aplicacao-de-penalidade-de-advertencia-a-servidora-adotando-o-instituto-da-dosimetria-da-penalidade-ao-caso-concreto-reconhecendo-de-oficio-a-prescricao-da-pretensao-punitiva-administrativa-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 23, DE 14 DE ABRIL DE 2023. "DETERMINA O ENCERRAMENTO DO PAD Nº 001/2023, MEDIANTE APLICAÇÃO DE PENALIDADE DE ADVERTÊNCIA À SERVIDORA, ADOTANDO O INSTITUTO DA DOSIMETRIA DA PENALIDADE AO CASO CONCRETO, RECONHECENDO DE OFÍCIO A PRESCRIÇÃO DA PRETENSÃO PUNITIVA ADMINISTRATIVA E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município c/c a Lei Complementar nº 001, de 3 de abril de 2012;CONSIDERANDO a regular tramitação do Processo Administrativo Disciplinar nº 001/2023, com parecer conclusivo da Comissão Processante que agiu de forma independente e imparcial;CONSIDERANDO o lapso de tempo transcorrido entre os fatos apurados e a efetiva conclusão dos trabalhos;CONSIDERANDO a ausência de elementos concretos que pudessem demonstrar eventual prejuízo em razão dos fatos apurados, aliado ao parecer jurídico que analisou a dosimetria da pena e o prazo prescricional para a tramitação do processo administrativo, DECRETA:Art. 1º Fica encerrado o Processo Administrativo Disciplinar nº 001/2023, instaurado em face da Conselheira Tutelar Sra. Magna Aparecida Cândido Bett, conforme determina a legislação vigente.Art. 2º Fica aplicada a penalidade de advertência por escrito à Sra. Magna Aparecida Cândido Bett, reconhecendo, de ofício, a prescrição da pretensão punitiva administrativa, tendo em vista o disposto no art. 105, inc. III § 1º da Lei Complementar nº 001, de 3 de abril de 2012, regulada pela pena concreta aplicada.Art. 3º Este Decreto entra em vigor na data de sua publicação.Art. 4º Intimem-se os interessados, encaminhando cópia do presente instrumento ao PAD nº 001/2023.Art. 5º Revogam-se as disposições em contrário.Nova Veneza, SC, 14 de abril de 2023.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 14 de abril de 2023.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

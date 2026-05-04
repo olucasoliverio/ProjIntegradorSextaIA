@@ -1,0 +1,14 @@
+# DECRETO GP Nº 71, DE 1º DE NOVEMBRO DE 2024.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 05/11/2024
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2024/8/71/decreto-gp-n-71-2024-designa-membros-para-a-comissao-de-avaliacao-e-selecao-cas-e-comissao-de-organizacao-e-acompanhamento-coa-nos-processos-relacionados-a-politica-nacional-aldir-blanc-de-fomento-a-cultura-pnab-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 71, DE 1º DE NOVEMBRO DE 2024. "DESIGNA MEMBROS PARA A COMISSÃO DE AVALIAÇÃO E SELEÇÃO - CAS E COMISSÃO DE ORGANIZAÇÃO E ACOMPANHAMENTO - COA, NOS PROCESSOS RELACIONADOS A POLÍTICA NACIONAL ALDIR BLANC DE FOMENTO À CULTURA - PNAB, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município;CONSIDERANDO a instituição da Política Nacional Aldir Blanc de Fomento à Cultura - PNAB - através da Lei nº 14.399, de 08 de julho de 2022, baseada na parceria da União, Estados, Distrito Federal e Municípios com a sociedade civil no setor da cultura, bem como no respeito à diversidade, à democratização e à universalização do acesso à cultura no Brasil;CONSIDERANDO que a PNAB objetiva estruturar o sistema federativo de financiamento à cultura mediante repasses da União aos Estados, Distrito Federal e Municípios de forma continuada, ocasionando na expedição de edital que se destina a apoiar os projetos apresentados pelos agentes culturais de Nova Veneza/SC, DECRETA:Art. 1º Ficam designados os membros para atuação nos processos relacionados a Política Nacional Aldir Blanc de Fomento à Cultura - PNAB, em conformidade com os editais divulgados.  § 1º A Comissão de Organização e Acompanhamento - COA, será composta pelos seguintes membros:  I - Carolina W. Ghislandi;  II - Letícia de Oliveira David;  III - Izabelle Amboni Destro.  § 2º A Comissão de Avaliação e Seleção - CAS, com a atribuição de analisar e avaliar os projetos culturais inscritos, julgar recursos e proceder aos atos necessários ao processamento da seleção, com os seguintes membros:  I - Maxwell Sandeer Flôr;  II - Luiz Nilton Correa;  III - Andressa Borges Flor.Art. 2º Este Decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrárioNova Veneza, SC, 1º de novembro de 2024.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 1º de novembro de 2024.  1. OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

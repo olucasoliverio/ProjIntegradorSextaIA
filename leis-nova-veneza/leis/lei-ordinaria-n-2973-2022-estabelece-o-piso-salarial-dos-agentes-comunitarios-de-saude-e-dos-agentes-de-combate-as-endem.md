@@ -1,0 +1,14 @@
+# LEI Nº 2.973, DE 12 DE SETEMBRO DE 2022.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 14/09/2022
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2022/298/2973/lei-ordinaria-n-2973-2022-estabelece-o-piso-salarial-dos-agentes-comunitarios-de-saude-e-dos-agentes-de-combate-as-endemias-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2.973, DE 12 DE SETEMBRO DE 2022. "ESTABELECE O PISO SALARIAL DOS AGENTES COMUNITÁRIOS DE SAÚDE E DOS AGENTES DE COMBATE ÀS ENDEMIAS, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º O piso de vencimentos dos Agentes Comunitários de Saúde e dos Agentes de Combate às Endemias fica estabelecido em valor equivalente a 2 (dois) salários mínimos mensais, com vigência a partir de 05 de maio de 2022, em obediência ao disposto no § 9º, do art. 198, da Constituição Federal, com Redação dada pela Emenda Constitucional nº 120, de 05 de maio de 2022.  Parágrafo único. O piso salarial foi estabelecido com base nas Portarias do Ministério da Saúde GM/MS nº 1.971/22 e GM/MS nº 2.109/22, ambas publicadas no Diário Oficial da União de 30 de junho de 2022, edição extra.Art. 2º Nos termos do § 7º, do art. 198, da Constituição Federal, com Redação dada pela Emenda Constitucional nº 120, de 05 de maio de 2022, o pagamento do piso salarial definido no art. 1º, fica condicionado ao repasse dos recursos pelo Ministério da Saúde ao Fundo Municipal de Saúde através do Fundo Nacional de Saúde.  § 1º No caso de ocorrer a suspensão do repasse pelo Ministério da Saúde em decorrência de irregularidades no cadastro de profissionais no Sistema de Cadastro Nacional de Estabelecimentos de Saúde (SCNES), em razão de culpa comprovada do profissional, aquele que der causa à irregularidade poderá ter seu pagamento suspenso até a normalização dos repasses pelo Ministério da Saúde.  § 2º Os pagamentos serão restabelecidos a partir dos repasses efetuados pelo Fundo Nacional de Saúde, garantindo-se efeitos retroativos, caso o Ministério da Saúde retroaja os efeitos dos repasses.Art. 3º No que esta Lei for omissa, aplicam-se as normas dispostas nos §§ 5º ao 11º do art. 198 da Constituição Federal.Art. 4º As despesas decorrentes da execução da presente Lei correrão à conta de dotações consignadas no orçamento vigente, suplementando-se, se necessário.Art. 5º Esta Lei entra em vigor na data de sua publicação, retroagindo seus efeitos a partir de 05 de maio de 2022.Nova Veneza, SC, 12 de setembro de 2022.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 12 de setembro de 2022.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

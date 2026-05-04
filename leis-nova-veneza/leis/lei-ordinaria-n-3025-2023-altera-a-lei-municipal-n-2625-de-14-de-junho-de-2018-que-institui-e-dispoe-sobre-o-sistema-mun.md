@@ -1,0 +1,14 @@
+# LEI Nº 3.025, DE 26 DE JULHO DE 2023.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 01/08/2023
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2023/303/3025/lei-ordinaria-n-3025-2023-altera-a-lei-municipal-n-2625-de-14-de-junho-de-2018-que-institui-e-dispoe-sobre-o-sistema-municipal-de-politicas-publicas-sobre-drogas-simpad-o-conselho-municipal-de-politicas-sobre-drogas-comad-o-fundo-especial-antidrogas-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 3.025, DE 26 DE JULHO DE 2023. "ALTERA A LEI MUNICIPAL Nº 2.625, DE 14 DE JUNHO DE 2018, QUE INSTITUI E DISPÕE SOBRE O SISTEMA MUNICIPAL DE POLÍTICAS PÚBLICAS SOBRE DROGAS (SIMPAD), O CONSELHO MUNICIPAL DE POLÍTICAS SOBRE DROGAS (COMAD), O FUNDO ESPECIAL ANTIDROGAS, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º O art. 2º da Lei Municipal nº 2.625, de 14 de junho de 2018, que institui e dispõe sobre o Sistema Municipal de Políticas Públicas sobre Drogas (SIMPAD), o Conselho Municipal de Políticas sobre Drogas (COMAD), o Fundo Especial Antidrogas, e dá outras providências, passa a vigorar com as seguintes alterações:Art. 2º ...  § 1º ...  I - Gabinete do Prefeito Municipal;  II - Câmara de Vereadores;  III - Secretaria Municipal de Saúde;  IV - Secretaria Municipal de Assistência Social;  V - Secretaria Municipal de Educação;  VI - Secretaria Municipal de Cultura, Esporte e Turismo;  VII - Conselho Tutelar;  VIII - Conselho Municipal dos Direitos da Criança e do Adolescente de Nova Veneza - SC;  IX - Polícia Civil;  X - Polícia Militar;  XI - Associação Feminina de Assistência Veneziana (AFAVE);  XII - Hospital São Marcos;  XIII - Sociedade Civil Organizada (Sindicatos, OSs e OSCs);  XIV - Comunidades Terapêuticas;  XVI - grejas;  XVI - Clubes de Serviço;  XVII - Grupo de Escoteiros Doutor Cesare Tibaldeschi;  XVIII - Câmara dos Dirigentes Lojistas (CDL);  XIX - Associações de Pais e Professores das Escolas (APPs);  XX - Associações de Moradores.Art. 2º Esta Lei entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza, SC, 26 de julho de 2023.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 26 de julho de 2023.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,14 @@
+# LEI Nº 3.021, DE 09 DE JUNHO DE 2023.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 13/06/2023
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2023/303/3021/lei-ordinaria-n-3021-2023-ratifica-o-protocolo-de-intencoes-e-autoriza-o-ingresso-do-municipio-de-nova-veneza-no-consorcio-intermunicipal-de-saude-macro-sul-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 3.021, DE 09 DE JUNHO DE 2023. "RATIFICA O PROTOCOLO DE INTENÇÕES E AUTORIZA O INGRESSO DO MUNICÍPIO DE NOVA VENEZA NO CONSÓRCIO INTERMUNICIPAL DE SAÚDE MACRO SUL, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica ratificado o Protocolo de Intenções de instituição do CONSÓRCIO INTERMUNICIPAL DE SAÚDE MACRO SUL, com denominação de fantasia e doravante chamado CIS - MACRO SUL, consórcio público de saúde, com a finalidade estabelecer relações de cooperação federativa entre Municípios consorciados, inclusive a realização de objetivos de interesse comum, propiciando a gestão associada de serviços públicos na área da saúde, visando a melhoria da qualidade de vida da população dos municípios consorciados.  Parágrafo único. O Protocolo de Intenções, após sua ratificação por pelo menos 2 (dois) dos municípios que o subscrevem, converter-se-á no contrato de consórcio público.Art. 2º Fica autorizado o ingresso do Município de Nova Veneza no CIS - MACRO SUL, nos termos do Protocolo de Intenções ora ratificado.Art. 3º O CIS - MACRO SUL será constituído sob a forma de consórcio público, com personalidade jurídica de direito público e natureza autárquica.Art. 4º Fica autorizado o Município de Nova Veneza a firmar Contrato de Rateio com o CIS - MACRO SUL, de acordo com cada programa de atendimento, visando atender as finalidades do Consórcio, conforme estabelecido no Protocolo de Intenções e Assembleia Geral.Art. 5º O CIS - MACRO SUL terá sede no município de Criciúma, Estado de Santa Catarina, com endereço a ser definido pela Assembleia Geral.  Parágrafo único. A sede do CIS - MACRO SUL poderá ser alterada para outro município mediante decisão da Assembleia Geral, pelo voto de 2/3 de seus membros adimplentes com suas obrigações.Art. 6º Fica aplicada, para reger as relações jurídicas entre os Municípios consorciados e o CONSÓRCIO INTERMUNICIPAL DE SAÚDE MACRO SUL - CIS - MACRO SUL, a Lei Federal nº 11.107, de 06 de abril de 2005.Art. 7º Esta Lei entra em vigor na data de sua publicaçãoNova Veneza, SC, 09 de junho de 2023.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 09 de junho de 2023.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

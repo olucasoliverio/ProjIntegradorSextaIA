@@ -1,0 +1,18 @@
+# LEI Nº 3.062, DE 30 DE NOVEMBRO DE 2023.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 04/12/2023
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2023/307/3062/lei-ordinaria-n-3062-2023-dispoe-sobre-o-plano-municipal-para-a-infancia-e-adolescencia-pmia-2023-2032-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 3.062, DE 30 DE NOVEMBRO DE 2023. "DISPÕE SOBRE O PLANO MUNICIPAL PARA A INFÂNCIA E ADOLESCENCIA - PMIA 2023-2032, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica aprovado o Plano Municipal para a Infância e Adolescência - PMIA 2023-2032 (Anexo I), que faz parte integrante da presente Lei, com os seguintes objetivos:  I - mobilizar os segmentos envolvidos para a discussão acerca das politicas públicas na área da infância e adolescência do município.  II - levantar e sistematizar problemas e seus respectivos objetivos de impacto, bem como os resultados esperados nos diversos segmentos que compõem a área da infância e adolescência.  III - estabelecer resultados, indicadores, meios de verificação, estratégia de ação, prazos e responsáveis, em cada segmento envolvido de discussões a partir dos resultados esperados.Art. 2º O Município, por intermédio dos diversos segmentos ligados à Administração Municipal, juntamente com a sociedade civil organizada, realizará avaliações periódicas da implementação do Plano Municipal para a Infância e Adolescência - PMIA.  § 1º A Administração Municipal e a sociedade civil organizada acompanharão a execução do Plano Municipal de Infância e Adolescência - PMIA.  § 2º A avaliação do plano realizar-se-á visando acompanhar a necessidade das Secretarias Municipais, cabendo à Câmara de Vereadores aprovar as medidas legais decorrentes das mudanças, com vistas à readequação à Legislação Estadual e Federal se for o caso.Art. 3º A Administração Municipal, por intermédio de suas Secretarias Municipais, estabelecerá critérios e mecanismos de acompanhamento e avaliação das metas constantes do Plano Municipal para a Infância e Adolescência - PMIA.  Parágrafo único. Após definidos os critérios e mecanismos referidos no caput, estes deverão ser publicados na forma de Decreto do Chefe do Poder Executivo.Art. 4º O Plano Plurianual do Município será elaborado de modo a dar suporte às metas constantes do Plano Municipal para a Infância e Adolescência - PMIA.Art. 5º Os Poderes do Município empenhar-se-ão na progressiva realização dos objetos metas, atuando junto à sociedade para que o Plano Municipal de Infância e adolescência seja amplamente divulgado, conhecido e acompanhado na sua implementação.Art. 6º Esta Lei entra em vigor na dará de sua publicação.Art. 7º Revogam-se as disposições em contrário, em especial a Lei Municipal nº 2.754, de 06 de dezembro de 2019.Nova Veneza, SC, 30 de novembro de 2023.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 30 de novembro de 2023.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                                        Download Anexo:
+
+                                                    Lei Ordinária Nº 3062/2023 - Nova Veneza-SC    
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

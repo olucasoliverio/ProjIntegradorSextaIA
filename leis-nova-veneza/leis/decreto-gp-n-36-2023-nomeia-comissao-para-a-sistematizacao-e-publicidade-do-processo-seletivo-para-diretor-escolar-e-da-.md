@@ -1,0 +1,13 @@
+# DECRETO GP Nº 36, DE 13 DE JUNHO DE 2023.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 24/10/2023
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2023/4/36/decreto-gp-n-36-2023-nomeia-comissao-para-a-sistematizacao-e-publicidade-do-processo-seletivo-para-diretor-escolar-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 36, DE 13 DE JUNHO DE 2023. "NOMEIA COMISSÃO PARA A SISTEMATIZAÇÃO E PUBLICIDADE DO PROCESSO SELETIVO PARA DIRETOR ESCOLAR, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município e com fulcro nos arts. 7º e 9º do Decreto GP nº 050, de 13 de outubro de 2022, DECRETA:Art. 1º Fica nomeada a Comissão Municipal de Gestão Democrática Escolar, composta por três representantes da Secretaria Municipal de Educação, conforme segue:  I - Soraia Aparecida dos Santos Bortolotto  II - Ricardo Mazzorana Albuquerque dos Santos  III - Scheila Pizzolo Mondardo  Parágrafo único. Os membros da comissão elegerão um dos seus integrantes para presidi-la.Art. 2º A Comissão terá a incumbência de:  I - Elaborar o Edital relativo ao Processo de Qualificação dos Planos de Gestão com critérios de inscrição e demais quesitos que se julgar necessários a esse certame;  II - Definir cada membro para representação na composição da Banca Examinadora;  III - Elaborar os critérios de avaliação do Plano de Gestão;  IV - Homologar ou não a inscrição do(a) candidato(a), a partir do preenchimento dos requisitos exigidos por este Decreto e pelo Edital;  V - Cumprir e fazer cumprir a legislação aplicável;  VI - Elaborar o Cronograma de Atividades relativas a esse processo de qualificação;  VII - Estabelecer Normas Complementares a este Regulamento;  VIII - Oficializar o resultado do processo de qualificação, apresentando ao Chefe do Poder Executivo a nominata dos candidatos cujos Planos de Gestão foram selecionados;  IX - Promover a publicação de seus atos na forma regulamentar;  X - Resolver os casos omissos relativos ao Processo de Qualificação dos Gestores;  XI - Organizar e coordenar o processo de apresentação e votação dos Planos de Gestão.Art. 3º As nomeações não acarretarão ônus aos cofres públicos.Art. 4º Este Decreto entra em vigor na data de sua publicação e revogam-se as disposições em contrário.Nova Veneza, SC, 13 de junho de 2023.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e registrado em 13 de junho de 2023.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

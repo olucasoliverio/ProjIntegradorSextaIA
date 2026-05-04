@@ -1,0 +1,14 @@
+# DECRETO GP Nº 88, DE 20 DE DEZEMBRO DE 2024.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 26/12/2024
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2024/9/88/decreto-gp-n-88-2024-estabelece-o-valor-unitario-de-referencia-vur-relativo-a-taxa-de-coleta-de-residuos-solidos-tcrs-para-o-exercicio-de-2025-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 88, DE 20 DE DEZEMBRO DE 2024. "ESTABELECE O VALOR UNITÁRIO DE REFERÊNCIA (VUR) RELATIVO À TAXA DE COLETA DE RESÍDUOS SÓLIDOS (TCRS) PARA O EXERCÍCIO DE 2025, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 4º., alínea "a", da Lei Municipal nº 1.806, de 18 de dezembro de 2006, DECRETA:Art. 1º Fica estabelecido em 314,36 (trezentos e quatorze vírgula trinta e seis) o Valor Unitário de Referência (VUR) relativo à Taxa de Coleta de Resíduos Sólidos (TCRS) para o exercício de 2025, nos termos do art. 4º., alínea "a", da Lei Municipal nº 1.806, de 18 de dezembro de 2006, conforme Anexo I (Relatório Técnico).Art. 2º Este Decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza, SC, 20 de dezembro de 2024.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 20 de dezembro de 2024.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e FinançasANEXO IRELATÓRIO TÉCNICO  1. CÁLCULO DA TAXA:A Taxa de Coleta de Resíduos Sólidos - TCRS, é calculada pelo resultado da multiplicação entre o Valor Unitário de Referência (VUR), o Fator de Freqüência (Ffreq), o Fator de Localização (Floc) e o Fator de Porte (Fpor), conforme fórmula que segue:TLC = VUR x Ffreq x Floc x Fpor  2. DEFINIÇÃO DO VALOR UNITÁRIO DE REFERÊNCIA:O Valor Unitário de Referência (VUR) corresponde ao custo dos serviços realizados durante um ano rateado entre os cadastros tributáveis (unidade autônoma).Custo dos serviços1: R$ 1.293.262,15 (um milhão, duzentos e noventa e três mil e duzentos e sessenta e dois reais e quinze centavos).Cadastros tributáveis: 4.114 (quatro mil cento e quatorze).VUR = 1.293.262,15/4.114 = 314,36Nova Veneza, SC, 20 de dezembro de 2024.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e FinançasMARIA EDUARDA AMBONI DUMINELLIProcuradora-Geral do MunicípioJOÃO PAULO GAVA JUSTGestor da FundaveJULIANO MONDARDO DAL MOLINAssessoria e Consultoria Técnica1 Para o cálculo do custo dos serviços utilizou-se, para fins de projeção, o total de despesas empenhadas no exercício de 2024, nos termos do art. 4º., alínea "a", da Lei Municipal nº 1.806/06.
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

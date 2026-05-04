@@ -1,0 +1,14 @@
+# DECRETO GP Nº 77, DE 05 DE DEZEMBRO DE 2023.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 07/12/2023
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2023/8/77/decreto-gp-n-77-2023-nomeia-membros-para-o-conselho-municipal-de-politica-cultural-cmpc-de-nova-veneza-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 77, DE 05 DE DEZEMBRO DE 2023. "NOMEIA MEMBROS PARA O CONSELHO MUNICIPAL DE POLÍTICA CULTURAL - CMPC DE NOVA VENEZA, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, em conformidade com o art. 39 e seguintes da Lei Municipal nº 2.592, de 23 de outubro de 2017, DECRETA:Art. 1º Ficam nomeados para o Conselho Municipal de Política Cultural - CMPC de Nova Veneza, os seguintes membros:  I - Representantes do Poder Público:  a) Secretaria de Cultura, Esporte e Turismo:TITULAR: Carolina Warmling Ghislandi;SUPLENTE: Letícia de Oliveira David.  b) Fundação Municipal de Meio Ambiente (FUNDAVE):TITULAR: João Paulo Gava Just;SUPLENTE: Alan de Freitas Rodrigues.  c) Secretaria de Assistência Social:TITULAR: Loislane Barbosa;SUPLENTE: Maiara Spillere.  d) Secretaria de Educação:TITULAR: Ricardo Albuquere Mazzorana dos Santos;SUPLENTE: Carmilena Gonçalves da Silva Machado.  e) Secretaria de Planejamento:TITULAR: Cláudio Luiz Marques;SUPLENTE: Letícia Bongiolo.  f) Secretaria de Agricultura:TITULAR: Edgar Preis.SUPLENTE: Odair Coral.  g) Secretaria de Desenvolvimento Econômico:TITULAR: Elzio José Milanez.  h) Setor Jurídico:TITULAR: Bruno Colombo Boaroli;SUPLENTE: Maria Eduarda Amboni Duminelli.  II - Representantes da sociedade civil:  a) Setor de artesanato:TITULAR: Robson de Oliveira Issac;  b) Setor de artes:TITULAR: Neusa Milanez;  c) Setor de cultura popular:TITULAR: Benício Marcos Spillere.  d) Setor de dança:TITULAR: Leandro Nunes Martins;SUPLENTE: Caroline Tromm.  e) Setor de música:TITULAR: Moisés de Souza;SUPLENTE: Doranei Amboni.  f) Setor de teatro:TITULAR: Marcelo Ciepielewski.  g) Setor de patrimônio cultural material, imaterial e natural:TITULAR: Gabriel Romagna.  h) Setor de literatura e biblioteca:TITULAR: Denise Nuernberg.Art. 2º As nomeações não acarretarão ônus aos cofres públicos.Art. 3º Este Decreto entra em vigor na data de sua publicação.Art. 4º Revogando-se as disposições em contrário, em especial o Decreto GP nº 028, de 25 de maio de 2021.Nova Veneza, SC, 05 de dezembro de 2023.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 05 de dezembro de 2023.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

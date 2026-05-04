@@ -1,0 +1,14 @@
+# DECRETO SAF Nº 02, DE 29 DE JANEIRO DE 2024.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 31/01/2024
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2024/1/2/decreto-saf-n-2-2024-abre-o-orcamento-fiscal-do-municipio-de-nova-veneza-para-inserir-atividade-fonte-de-recursos-e-abertura-de-credito-especial-ao-orcamento-do-municipio-do-ano-em-curso-na-unidade-prefeitura-municipal-por-conta-de-excesso-de-arrecadacao-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 02, DE 29 DE JANEIRO DE 2024."ABRE, O ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, PARA INSERIR ATIVIDADE, FONTE DE RECURSOS E ABERTURA DE CRÉDITO ESPECIAL AO ORÇAMENTO DO MUNICÍPIO DO ANO EM CURSO NA UNIDADE PREFEITURA MUNICIPAL, POR CONTA DE EXCESSO DE ARRECADAÇÃO, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 3.075, de 22 de janeiro de 2024, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 3.075, de 22 de janeiro de 2024), para inserir Projeto/Atividade específico, Fonte de Recursos e abrir crédito especial ao Orçamento da Unidade Prefeitura Municipal de Nova Veneza, por conta de excesso de arrecadação, na forma do artigo 43, II, da Lei Federal 4.320/64, até o valor de R$ 1.000.000,00 (um milhão de reais), conforme abaixo especificado: Órgão 02: GESTÃO DO CENTRO ADMINISTRATIVO Unidade 01: GESTÃO DO CENTRO ADMINISTRATIVO Proj./Ativ.: 3.004 Construção Centro do Idoso Aplicação: 4.4.90.00.00.00.00.00 - Aplicações Diretas - R$ 1.000.000,00....1.701.0000.0064 - Transferências de Convênios Estado/Outros Parágrafo único. Os recursos destinados aos créditos do artigo anterior correrão por conta do excesso de arrecadação, decorrente do processo n.º SCC 10924/2023.Art. 2º Ficam autorizados os ajustes que se fizerem necessários nos anexos de metas físicas e fiscais do Plano Plurianual 2022/2025 - Lei Municipal nº 2.899, de 23 de setembro de 2021 e na Lei de Diretrizes Orçamentárias 2024 - Lei Municipal nº 3.059, de 30 de novembro de 2023.Art. 3º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 29 de janeiro de 2024.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 29 de janeiro de 2024.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,14 @@
+# LEI Nº 3.023, DE 28 DE JUNHO DE 2023.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 30/06/2023
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2023/303/3023/lei-ordinaria-n-3023-2023-autoriza-o-municipio-de-nova-veneza-a-instituir-a-semana-municipal-de-conscientizacao-do-transtorno-do-espectro-autista-tea-no-calendario-oficial-do-municipio-de-eventos-e-datas-comemorativas-a-ser-realizada-anualmente-na-semana-que-compreender-o-dia-02-de-abril-dia-mundial-de-conscientizacao-do-autismo-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 3.023, DE 28 DE JUNHO DE 2023. "AUTORIZA O MUNICÍPIO DE NOVA VENEZA, A INSTITUIR A SEMANA MUNICIPAL DE CONSCIENTIZAÇÃO DO TRANSTORNO DO ESPECTRO AUTISTA - TEA NO CALENDÁRIO OFICIAL DO MUNICÍPIO DE EVENTOS E DATAS COMEMORATIVAS, A SER REALIZADA, ANUALMENTE, NA SEMANA QUE COMPREENDER O DIA 02 DE ABRIL - DIA MUNDIAL DE CONSCIENTIZAÇÃO DO AUTISMO, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica autorizado o Município de Nova Veneza, a instituir a Semana Municipal de Conscientização do Transtorno do Espectro Autista - TEA no Calendário Oficial do Município de Eventos e Datas Comemorativas, a ser realizada, anualmente, na semana que compreender o dia 02 de abril - Dia Mundial de Conscientização do Autismo.Art. 2º O objetivo da Semana, ora instituída, será informar e orientar a população sobre o autismo, a importância do diagnóstico precoce, as formas de tratamento, os serviços de apoio à família e respeito ao cidadão autista.  Parágrafo único. A Semana Municipal de Conscientização do Transtorno do Espectro Autista tem como diretrizes:  I - alertar a população sobre o autismo, utilizando veículos de comunicação de grande acesso à população, Conselhos, Associações e Clubes de Serviço;  II - promover o encontro com especialistas na área para debater o assunto;  III - elaborar e distribuir cartilhas didáticas para órgãos públicos, capacitando servidores públicos para lidar com pessoas que tenham o diagnóstico.Art. 3º Na Semana Municipal de Conscientização do Transtorno do Espectro Autista serão realizados debates, palestras, seminários, audiências públicas, esclarecimentos, propagandas publicitárias e distribuição de folhetos informativos e explicativos.Art. 4º Esta Lei entra em vigor na data de sua publicação.Nova Veneza, SC, 28 de junho de 2023.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 28 de junho de 2023.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.
