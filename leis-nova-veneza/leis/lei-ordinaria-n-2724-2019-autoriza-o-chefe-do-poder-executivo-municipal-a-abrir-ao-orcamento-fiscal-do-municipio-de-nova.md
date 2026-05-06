@@ -1,0 +1,13 @@
+# LEI Nº 2.724, DE 07 DE OUTUBRO DE 2019.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 26/11/2019
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2019/273/2724/lei-ordinaria-n-2724-2019-autoriza-o-chefe-do-poder-executivo-municipal-a-abrir-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-assistencia-social-credito-suplementar-no-valor-de-r-40000-00-por-conta-da-transposicao-de-recursos-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2.724, DE 07 DE OUTUBRO DE 2019. "AUTORIZA O CHEFE DO PODER EXECUTIVO MUNICIPAL A ABRIR, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE ASSISTÊNCIA SOCIAL, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 40.000,00, POR CONTA DA TRANSPOSIÇÃO DE RECURSOS, E DÁ OUTRAS PROVIDÊNCIAS."SÉRGIO ALBERTO SPILERE, Prefeito Municipal e.e. de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica, o Chefe do Poder Executivo Municipal, autorizado a abrir, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 2.656, de 20 de novembro de 2018), em favor da Secretaria Municipal de Assistência Social, crédito suplementar no valor de R$ 40.000,00 (quarenta mil reais), para atender a programação abaixo discriminada:Órgão 14: SECRETARIA DE ASSISTÊNCIA SOCIAL Unidade 01: Secretaria de Assistência Social Proj./Ativ. 2.034: Manutenção dos Programas de Atenção Social Básica Aplicação: 3.3.90.00.00.00.00.00 0701 (015) - Aplicações Diretas....R$ 40.000,00TOTAL ....R$ 40.000,00Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º decorrem da anulação parcial das seguintes dotações orçamentárias:Órgão 12: ENCARGOS GERAIS DO MUNICÍPIO Unidade 01: Encargos Gerais do Município Proj./Ativ. 0.064: Manutenção dos Encargos Especiais Aplicação: 4.6.90.00.00.00.00.00 0700 (131) - Aplicações Diretas....R$ 40.000,00TOTAL ....R$ 40.000,00Art. 3º Esta Lei entra em vigor na data de sua publicação.Art. 4º Revogam-se as disposições em contrário.Nova Veneza, SC, 07 de outubro de 2019.SÉRGIO ALBERTO SPILEREPrefeito Municipal e.e.Publicada e registrada em 07 de outubro de 2019.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

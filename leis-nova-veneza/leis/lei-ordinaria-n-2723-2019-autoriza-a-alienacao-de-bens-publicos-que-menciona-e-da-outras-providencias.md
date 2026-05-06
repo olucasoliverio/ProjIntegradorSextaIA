@@ -1,0 +1,13 @@
+# LEI Nº 2.723, DE 27 DE SETEMBRO DE 2019.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 26/11/2019
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2019/273/2723/lei-ordinaria-n-2723-2019-autoriza-a-alienacao-de-bens-publicos-que-menciona-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2.723, DE 27 DE SETEMBRO DE 2019. "AUTORIZA A ALIENAÇÃO DE BENS PÚBLICOS QUE MENCIONA, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo, autorizado a alienar, na forma da legislação em vigor, com base no valor mínimo estabelecido pela Comissão Permanente de Avaliação, os bens móveis descritos a seguir:  I - Um AUTOMÓVEL com as seguintes características:Marca/Modelo: RENAULT/SANDERO AUT1016V Placa: MLA6705Renavam: 567421112Fabricação/Modelo: 2013/2014Combustível: ÁLCOOL/GASOLINA Cor: BRANCA Chassi: 93YBSR6RHEJ889978Código (Patrimônio): 8775Avaliação: R$ 10.000,00 (dez mil reais);  II - Um AUTOMÓVEL com as seguintes características:Marca/Modelo: JINBEI SHINERAY TRUCKS Placa: MKR6194Renavam:545967007Fabricação/Modelo: 2012/2013Combustível: GASOLINA Cor: BRANCA Chassi: LSYCJD2D9DH185531Código (Patrimônio): 8726Avaliação: R$ 7.000,00 (sete mil reais);  III - Um AUTOMÓVEL com as seguintes características:Marca/Modelo: VW/VOYAGE 1.6Placa: MIM2819Renavam:265762480Fabricação/Modelo: 2010/2011Combustível: ÁLCOOL/GASOLINA Cor: BRANCA Chassi: 9BWDBO5U1BT179129Código (Patrimônio): 6808Avaliação: R$ 12.000,00 (doze mil reais);  IV - Um COMPACTADOR DE LIXO com as seguintes características:Avaliação: R$ 2.500,00 (dois mil e quinhentos reais).Art. 3º Os bens serão alienados no estado em que se encontram, verificadas as regras do edital de leilão a ser oportunamente publicado.Art. 4º A Comissão de Leilão poderá por motivos justificados e a qualquer tempo, inclusive após arrematação e antes de entregar os bens, retirar quaisquer um dos itens e cancelar as arrematações.Art. 5º Esta Lei entra em vigor na data de sua publicação, revogando-se as disposições em contrário.Nova Veneza, SC, 27 de setembro de 2019.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 27 de setembro de 2019.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

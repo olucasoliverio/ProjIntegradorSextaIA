@@ -1,0 +1,13 @@
+# LEI Nº 2.675, DE 14 DE MARÇO DE 2019.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 26/04/2019
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2019/268/2675/lei-ordinaria-n-2675-2019-altera-a-lei-municipal-n-2668-de-16-de-janeiro-de-2019-que-autoriza-o-chefe-do-poder-executivo-municipal-a-adquirir-imovel-destinado-ao-programa-permanente-de-concessao-de-estimulos-economicos-e-incentivos-fiscais-do-municipio-de-nova-veneza-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2.675, DE 14 DE MARÇO DE 2019.ALTERA A LEI MUNICIPAL Nº 2.668, DE 16 DE JANEIRO DE 2019, QUE AUTORIZA O CHEFE DO PODER EXECUTIVO MUNICIPAL A ADQUIRIR IMÓVEL DESTINADO AO PROGRAMA PERMANENTE DE CONCESSÃO DE ESTÍMULOS ECONÔMICOS E INCENTIVOS FISCAIS DO MUNICÍPIO DE NOVA VENEZA, E DÁ OUTRAS PROVIDÊNCIAS.ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º A Lei Municipal nº 2.668, de 16 de janeiro de 2019, que autoriza o Chefe do Poder Executivo Municipal a adquirir imóvel destinado ao Programa Permanente de Concessão de Estímulos Econômicos e Incentivos Fiscais do Município de Nova Veneza, passa a vigorar com as seguintes alterações:  "Art. 1º...  ...  § 3º Fica, o Chefe do Poder Executivo Municipal, autorizado a executar, diretamente ou por terceiros contratados, os serviços de terraplanagem, drenagem e infraestrutura necessários à adequação da área de que trata o caput, nos termos da Lei Municipal nº 2.424/15.  § 4º A realização da infraestrutura deverá observar os limites da área adquirida, sendo permitida a realização de obras no entorno, visando a melhor adequação da área para as finalidades previstas na Lei Municipal nº 2.424/15, mediante autorização prévia dos lindeiros.Art. 2º As despesas decorrentes da execução desta Lei correrão por conta de dotações orçamentárias próprias, suplementadas se necessário.Art. 3º Esta Lei entra em vigor na data de sua publicação.Art. 4º Revogam-se as disposições em contrário.Nova Veneza, SC, 14 de março de 2019.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 14 de março de 2019.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

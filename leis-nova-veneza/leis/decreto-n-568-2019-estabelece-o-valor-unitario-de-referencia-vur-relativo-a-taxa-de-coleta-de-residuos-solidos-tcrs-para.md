@@ -1,0 +1,13 @@
+# DECRETO Nº 568, DE 05 DE DEZEMBRO DE 2019.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 20/01/2020
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2019/57/568/decreto-n-568-2019-estabelece-o-valor-unitario-de-referencia-vur-relativo-a-taxa-de-coleta-de-residuos-solidos-tcrs-para-o-exercicio-de-2019-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 568, DE 05 DE DEZEMBRO DE 2019. "ESTABELECE O VALOR UNITÁRIO DE REFERÊNCIA (VUR) RELATIVO À TAXA DE COLETA DE RESÍDUOS SÓLIDOS (TCRS) PARA O EXERCÍCIO DE 2019, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 4º, alínea "a", da Lei Municipal nº 1.806, de 18 de dezembro de 2006, DECRETA:Art. 1º Fica estabelecido em 147,09 (cento e quarenta e sete virgula zero nove) o Valor Unitário de Referência (VUR) relativo à Taxa de Coleta de Resíduos Sólidos (TCRS) para o exercício de 2020, nos termos do art. 4º, alínea "a", da Lei Municipal nº 1.806, de 18 de dezembro de 2006, conforme Anexo I (Relatório Técnico).Art. 2º Este Decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza, SC, 05 de dezembro de 2019.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 05 de dezembro de 2019.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e FinançasANEXO I RELATÓRIO TÉCNICO  1. CÁLCULO DA TAXA:A Taxa de Coleta de Resíduos Sólidos - TCRS, é calculada pelo resultado da multiplicação entre o Valor Unitário de Referência (VUR), o Fator de Freqüência (Ffreq), o Fator de Localização (Floc) e o Fator de Porte (Fpor), conforme fórmula que segue:TLC = VUR x Ffreq x Floc x Fpor  2. DEFINIÇÃO DO VALOR UNITÁRIO DE REFERÊNCIA:O Valor Unitário de Referência (VUR) corresponde ao custo dos serviços realizados durante um ano rateado entre os cadastros tributáveis (unidade autônoma).Custo dos serviços1: R$ 523.492,37 (quinhentos e vinte e três mil, quatrocentos e noventa e dois reais e trinta e sete centavos).Cadastros tributáveis: 3.559 (três mil quinhentos e cinquenta e nove).VUR = 523.492,37/3.559 = 147,09Nova Veneza, SC, 05 de dezembro de 2019.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e FinançasRICARDO DE SOUZA MELLO FILHOProcurador-Geral do MunicípioJULIANO MONDARDO DAL MOLINPresidente da Fundave1 Para o cálculo do custo dos serviços utilizou-se, para fins de projeção, o total de despesas empenhadas no exercício de 2019, nos termos do art. 4º, alínea "a", da Lei Municipal nº 1.806/06.
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

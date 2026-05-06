@@ -1,0 +1,14 @@
+# LEI Nº 2.905, DE 27 DE OUTUBRO DE 2021.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 29/10/2021
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2021/291/2905/lei-ordinaria-n-2905-2021-autoriza-o-chefe-do-poder-executivo-municipal-a-adquirir-imovel-destinado-para-construcao-de-creche-no-distrito-de-nossa-senhora-do-caravaggio-municipio-de-nova-veneza-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2.905, DE 27 DE OUTUBRO DE 2021. "AUTORIZA O CHEFE DO PODER EXECUTIVO MUNICIPAL A ADQUIRIR IMÓVEL DESTINADO PARA CONSTRUÇÃO DE CRECHE NO distrito de Nossa Senhora do Caravaggio, MUNICÍPIO DE NOVA VENEZA, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo Municipal autorizado a adquirir, por meio de escritura pública de compra e venda, uma área de terra de 10.000,00 m² (dez mil metros quadrados), de propriedade da empresa Kirchner Holdings Ltda, CNPJ nº 39.493.468/0001-09, no valor total de R$ 1.500.000,00 (um milhão e quinhentos mil reais).  § 1º O imóvel de que trata o caput encontra-se registrado junto ao 2º Ofício do Registro de Imóveis da Comarca de Criciúma sob a matrícula nº 13.006.  § 2º Fica o Poder Executivo autorizado a custear todas as despesas relacionadas à lavratura da escritura pública e ao registro da compra e venda de que trata o caput.Art. 2º O pagamento do valor estabelecido no artigo 1º será realizado após a assinatura da escritura pública de compra e venda, mediante empenho junto ao setor financeiro do Município;Art. 3º O imóvel adquirido será destinado para a construção de Creche Municipal, no distrito de Nossa Senhora do Caravaggio, Nova Veneza/SC.Art. 4º As despesas decorrentes da execução da presente Lei correrão por conta de dotações orçamentárias próprias, suplementadas se necessário.Art. 5º Fazem parte integrante da presente Lei, os documentos comprobatórios compostos através de cópia da matrícula atualizada do imóvel, cópia do Decreto declarando o imóvel de utilidade pública e sua publicação e, cópia do Termo de Avaliação emitida pela Comissão Permanente de Avaliação.Art. 6º Esta Lei entra em vigor na data de sua publicação.Nova Veneza, SC, 27 de outubro de 2021.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 27 de outubro de 2021.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,13 @@
+# DECRETO SAF Nº 61, DE 30 DE AGOSTO DE 2021.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 27/10/2021
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2021/7/61/decreto-saf-n-61-2021-abre-o-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-de-assistencia-social-credito-suplementar-no-valor-de-r-68000-00-por-conta-da-transposicao-de-recursos-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 61, DE 30 DE AGOSTO DE 2021."ABRE, O ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA DE ASSISTÊNCIA SOCIAL, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 68.000,00, POR CONTA DA TRANSPOSIÇÃO DE RECURSOS, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 2.896, de 26 de agosto de 2021, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 2.896, de 26 de agosto de 2021), em favor Secretaria de Assistência Social, crédito suplementar no valor de 68.000,00 (sessenta e oito mil reais), para atender a programação abaixo discriminada:Órgão 14: SECRETARIA DE ASSISTÊNCIA SOCIALUnidade 01: Secretaria de Assistência SocialProj./Ativ. 2.034: Manutenção dos Programas de Atenção Social BásicaAplicação: 3.1.90.00.00.00.00.00 0701 (7) - Aplicações Diretas .. R$ 68.000,00Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º decorrem da anulação parcial das seguintes dotações orçamentárias:Órgão 14: SECRETARIA DE ASSISTÊNCIA SOCIALUnidade 01: Secretaria de Assistência SocialProj./Ativ. 1.036: Aquisição de Áreas e Construção de MoradiasAplicação: 4.4.90.00.00.00.00.00 0701 (1) - Aplicações Diretas .. R$ 19.000,00Órgão 14: SECRETARIA DE ASSISTÊNCIA SOCIALUnidade 01: Secretaria de Assistência SocialProj./Ativ. 1.038: Construção Multi Uso, Equip. e Infraestrutura SocialAplicação: 4.4.90.00.00.00.00.00 0701 (4) - Aplicações Diretas .. R$ 49.000,00Art. 3º Este Decreto entra em vigor na data de sua publicação.Art. 4º Revogam-se as disposições em contrário.Nova Veneza, SC, 30 de agosto de 2021.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 30 de agosto de 2021.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

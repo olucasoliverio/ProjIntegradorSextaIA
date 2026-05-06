@@ -1,0 +1,13 @@
+# DECRETO GP Nº 56, DE 13 DE OUTUBRO DE 2021.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 27/10/2021
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2021/6/56/decreto-gp-n-56-2021-nomeia-membros-para-compor-as-comissoes-organizadoras-da-etapa-municipal-da-iv-conferencia-nacional-de-educacao-conae-2021
+
+## Texto Completo
+
+DECRETO GP Nº 56, DE 13 DE OUTUBRO DE 2021. "Nomeia membros para compor as comissões organizadoras da etapa municipal da IV Conferência Nacional de Educação (CONAE) - 2021."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e;CONSIDERANDO o Regimento Interno da IV Conferência Nacional de Educação - IV CONAE 2022;CONSIDERANDO o Regimento Interno da IV Conferência Nacional de Educação - IV CONAE 2022, etapa CONAE SC 2021 - 2022;CONSIDERANDO o Regimento da IV Conferência Nacional de Educação - IV CONAE 2022, etapa CONAE Municipal 2021, DECRETA:Art. 1º Ficam nomeados, os membros para compor a Comissão Organizadora Municipal (COM), conforme abaixo discriminados:  I - Alícia Semira Pasquali - Representante do Conselho Municipal de Educação;  II - Bibianna Martins Marinho - Representante do Conselho Municipal de Educação;  III - Morgana Baldessar Zanardo - Representante do Conselho Municipal de Educação.  Parágrafo único. A Comissão Organizadora Municipal (COM) terá como Presidente a Srª Alícia Semira Pasquali e como relatora a Srª Ivone Zocche.Art. 2º Ficam nomeados, os membros para compor a Comissão Especial de Mobilização e Divulgação (CEMD), conforme abaixo discriminados:  I - Patricia Bristot de Bem - Representante da Secretaria Municipal de Educação;  II - Suzana Marilda Correa da Silva - Representante do Conselho Municipal de Educação.Art. 3º Ficam nomeados para compor a Comissão Especial de Monitoramento e Sistematização (CEMS), conforme abaixo discriminados:  I - Ivone Zocche - Representante da Secretaria Municipal de Educação;  II - Teresa Dulcemar Brolesi Anacleto - Representante da Educação Especial do Município.Art. 4º As nomeações não acarretarão ônus aos cofres públicos.Art. 5º Este Decreto entra em vigor na data de sua publicação.Art. 6º Revogam-se as disposições em contrário.Nova Veneza, SC, 13 de outubro de 2021.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 13 de outubro de 2021.  1. OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

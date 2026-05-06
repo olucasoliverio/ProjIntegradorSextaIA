@@ -1,0 +1,13 @@
+# DECRETO SAF Nº 11, DE 14 DE ABRIL DE 2022.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 28/04/2022
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2022/2/11/decreto-saf-n-11-2022-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secrearia-municipal-de-agricultura-credito-especial-no-valor-de-r-50148-64-por-conta-de-superavit-financeiro-do-exercicio-de-2021-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 11, DE 14 DE ABRIL DE 2022."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECREARIA MUNICIPAL DE AGRICULTURA, CRÉDITO ESPECIAL NO VALOR DE R$ 50.148,64, POR CONTA DE SUPERÁVIT FINANCEIRO DO EXERCÍCIO DE 2021, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 9º, inciso I, da Lei Municipal nº 2.917, de 23 de dezembro de 2021 e Lei Municipal nº 2.928 de 13 de abril de 2022, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 2.917, de 23 de dezembro de 2021 e Lei Municipal nº 2.928 de 13 de abril de 2022), em favor da Secretaria Municipal de Agricultura, crédito especial no valor de R$ 50.148,64 (cinquenta mil, cento e quarenta e oito reais e sessenta e quatro centavos), por conta de superávit financeiro do exercício anterior, para atender a programação abaixo discriminada: Órgão 08: SECRETARIA DE AGRICULTURA Unidade 01: Departamento de Agricultura Proj./Ativ.: 2.052 Manutenção da Secretaria de Agricultura Aplicação: 4.4.50.00.00.00.00.00 0750 (__) - Transferências a Instituições Privadas sem Fins Lucrativos....R$ 50.148,64Art. 2º Os recursos destinados ao crédito especial de que trata o caput do art. 3º, correrão por conta do superávit financeiro do exercício anterior, na forma da Lei Federal nº 4.320/64.Art. 3º Ficam autorizados os ajustes nas metas físicas e financeiras, nos anexos correspondentes do Plano Plurianual 2022/2025 (Lei Municipal nº 2.899/2021) e na Lei de Diretrizes Orçamentárias 2022 (Lei Municipal nº 2.907/2021), em função da inserção do elemento de despesa/modalidade de aplicação de que trata a Lei Municipal nº 2.928 de 13 de abril de 2022.Art. 4º Este Decreto entra em vigor na data de sua publicação.Art. 5º Revogam-se as disposições em contrário.Nova Veneza, SC, 14 de abril de 2022.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e registrado em 14 de abril de 2022.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

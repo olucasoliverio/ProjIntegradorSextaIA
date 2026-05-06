@@ -1,0 +1,13 @@
+# DECRETO DP Nº 308, DE 18 DE DEZEMBRO DE 2020.
+
+**Tipo:** DECRETO DP Nº
+**Número:** 
+**Data:** 10/02/2020
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2020/31/308/decreto-n-308-2020-termino-de-contrato-temporario-dos-servidores-da-secretaria-municipal-de-educacao-ocupantes-do-cargo-de-provimento-temporario-de-professor-act
+
+## Texto Completo
+
+DECRETO DP Nº 308, DE 18 DE DEZEMBRO DE 2020.Término de Contrato Temporário dos Servidores da Secretaria Municipal de Educação, ocupantes do cargo de provimento temporário de Professor-ACT.ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, usando das atribuições legais e de conformidade com a Lei Orgânica Municipal, Lei Municipal nº 1.416 de 29 de dezembro de 1999 e Processo Seletivo 003/2019, DECRETA:Art. 1º Ficam demitidos por Término de Contrato Temporário os servidores da Secretaria Municipal de Educação, ocupantes do cargo de provimento temporário de Professor-ACT, conforme abaixo discriminado: Nome Decreto admissão Alexandra Ranacoski Decreto nº 069, de 10/02/2020 Adriana Brunelli Ghisi Ubiali Decreto nº 091, de 10/02/2020 Angela Carradore Coral Decreto nº 074, de 10/02/2020 Edicléia Aparecida Florêncio Martins Decreto nº 090, de 10/02/2020 Edna Casagrande Bonetti Decreto nº 064, de 10/02/2020 Elis Cristina Ghislandi Decreto nº 066, de 10/02/2020 Erica Cividini Scardueli Tramontin Decreto nº 070, de 10/02/2020 Eronilse de Fátima Campos Decreto nº 086, de 10/02/2020 Graziela da Silva Demetrio Decreto nº 214, de 03/08/2020 Helena Mendes Abelaira Decreto nº 085, de 10/02/2020 Josiele Bonfante Visentin Decreto nº 087, de 10/02/2020 Jucemara Ladriana Savio Zuchinalli Decreto nº 076, de 10/02/2020 Luciane Cechinel Zanete Decreto nº 084, de 10/02/2020 Mari Bernadete May Schmitz Decreto nº 072, de 10/02/2020 Mariane Rodrigues Albano Decreto nº 088, de 10/02/2020 Nicoly Beatriz Nunes Alves Decreto nº 157, de 04/05/2020 Paulo Ricardo Lopes Costa Decreto nº 071, de 10/02/2020 Rosinei Teresinha Margotti Darella Lorenzin Fernandes Decreto nº 065, de 10/02/2020 Sandra Maria de Amorim Decreto nº 092, de 10/02/2020 Simone Moro Pereira Decreto nº 063, de 10/02/2020 Suzana Velho Rissi Decreto nº 075, de 10/02/2020 Taise Ré Decreto nº 089, de 10/02/2020 Rosimere Terezinha Rampinelli Daleffe Pereira Decreto nº 259, de 01/10/2020Art. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza/SC, 18 de dezembro de 2020.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalRegistrada e publicada, em 18 de dezembro de 2020.OSNIR ANGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

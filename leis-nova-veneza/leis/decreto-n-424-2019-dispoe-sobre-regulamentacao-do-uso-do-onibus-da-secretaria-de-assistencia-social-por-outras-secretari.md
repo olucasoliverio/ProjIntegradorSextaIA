@@ -1,0 +1,15 @@
+# DECRETO Nº 424, DE 06 DE AGOSTO DE 2019.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 17/04/2020
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2019/43/424/decreto-n-424-2019-dispoe-sobre-regulamentacao-do-uso-do-onibus-da-secretaria-de-assistencia-social-por-outras-secretarias-e-da-outras-providencias
+
+## Texto Completo
+
+Versão consolidada, com alterações até o dia 10/03/2020
+
+                        DECRETO Nº 424, DE 06 DE AGOSTO DE 2019.(Revogado pelo Decreto nº 128/2020) "DISPÕE SOBRE REGULAMENTAÇÃO DO USO DO ÔNIBUS DA SECRETARIA DE ASSISTÊNCIA SOCIAL POR OUTRAS SECRETARIAS, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, DECRETA:Art. 1º Este Decreto dispõe sobre o uso do ÔNIBUS MARCA/MODELO MBENS MPOLO VIAGGIO, ANO/MODELO 2010, PLACA MHE 7588 de propriedade do Fundo Municipal de Assistência Social destinados ao transporte de passageiros.Art. 2º A prioridade do uso do veículo é do Fundo Municipal da Assistência Social, sendo facultado a utilização do veiculo por outras Secretarias mediante a requerimento prévio, com antecedência de 48h.  Parágrafo único. O requerimento deve conter:  a) Roteiro de viagem;  b) Quantidade de passageiros;  c) Tempo de uso;  d) Responsável pelo uso;  e) Justificativa do interesse PúblicoArt. 3º Caracterizam-se como interesse público viagens que tenham por objetivo a representatividade do Município de Nova Veneza, SC.Art. 4º Antes de cada viagem é de responsabilidade da Secretaria interessada, atentar-se para os cuidados necessários com a manutenção e bom uso do veículo, mediante adoção das seguintes medidas:  I - Caso seja necessário a conferência e troca de óleo, freios, filtros e extintor no tempo devido, visando à conservação do veículo;  II - Providenciar o adiantamento ao motorista, e combustível será de responsabilidade da Secretaria interessada, devendo observar as reservas orçamentárias próprias;  III - Conferir todos os itens de segurança antes da saída;  IV - Zelar pelo veículo, inclusive cuidando das ferramentas, dos acessórios e da documentação;Art. 5º As infrações de trânsito, praticadas na condução de veículos oficiais, serão de inteira responsabilidade da respectiva Secretaria, bem como o pagamento das multas e outras penalidades previstas em lei.  Parágrafo único. O responsável da Secretaria dará ciência ao condutor responsável pela infração de trânsito, para que o mesmo efetue o pagamento da infração de trânsito, de modo a regularizar a sua situação junto ao Órgão de Trânsito, sem gerar prejuízos a administração pública por conta de restrições no prontuário do veículoArt. 6º Este Decreto entra em vigor na data de sua publicação.Art. 7º Revogam-se as disposições em contrário.Nova Veneza, SC, 06 de agosto de 2019.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 06 de agosto de 2019.  1. OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,13 @@
+# DECRETO GP Nº 09, DE 08 DE MARÇO DE 2021.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 27/10/2021
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2021/1/9/decreto-gp-n-9-2021-nomeia-membros-para-o-conselho-municipal-de-educacao-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 09, DE 08 DE MARÇO DE 2021. "NOMEIA MEMBROS PARA O CONSELHO MUNICIPAL DE EDUCAÇÃO, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 1.109, de 10 de novembro de 1992, DECRETA:Art. 1º Ficam nomeados, sem ônus para o Município, os membros abaixo descritos para comporem o Conselho Municipal de Educação.  I - um representante da Secretaria Municipal de Educação:TITULAR - Alícia Semira Pasquali;SUPLENTE - Bibianna Martins Marinho.  II - Representante da Câmara Municipal de Vereadores:TITULAR - Elisabete Teresa Bortolotto;SUPLENTE - Maycon Minatto Michels.  III - Representantes dos Professores da Rede Municipal de Ensino:TITULAR - Suzana Marilda Correa da Silva;SUPLENTE - Daniel Amides Galvão.  IV - Representante da EPAGRI - Empresa de Pesquisa Agropecuária e Extensão Rural de Santa Catarina - Escritório Municipal de Nova Veneza:TITULAR - Daniel Mendonça;SUPLENTE - Donato Lucietti.  V - Representante da Secretaria Municipal de Saúde:TITULAR - César Augusto Pasetto;SUPLENTE - Fátima Maria Pessetti Paseto.  VI - Representante dos Professores da Rede Estadual de Ensino:TITULAR - Alessandra Vilpert Damiani;SUPLENTE - Katia Rejane da Silva.  VII - Representante das APPs - Associação de Pais e Professores:TITULAR - Morgana Baldessar Zanardo;SUPLENTE - Kátia Alves Rampinelli Vitali.  VIII - Representante do Sindicato dos Trabalhadores Rurais de Nova Veneza:TITULAR - Evandro Boaroli;SUPLENTE - Valcirleia Alexandre Presa.  IX - Representante da Associação Feminina de Assistência Veneziana - AFAVE:TITULAR - Josiane Damiani Gava;SUPLENTE - Herica Felisberto.Art. 2º Estas nomeações não acarretarão ônus aos cofres públicos do Município.Art. 3º Este Decreto entra em vigor na data de sua publicação.Art. 4º Revogam-se as disposições em contrário, em especial o Decreto Municipal nº 97, de 01 de fevereiro de 2019.Nova Veneza, SC, 08 de março de 2021.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e registrado em 08 de março de 2021.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

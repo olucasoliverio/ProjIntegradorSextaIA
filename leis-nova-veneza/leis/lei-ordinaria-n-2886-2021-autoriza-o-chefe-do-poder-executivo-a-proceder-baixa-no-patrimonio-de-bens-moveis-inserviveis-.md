@@ -1,0 +1,14 @@
+# LEI Nº 2.886, DE 01 DE JULHO DE 2021.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 02/07/2021
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2021/289/2886/lei-ordinaria-n-2886-2021-autoriza-o-chefe-do-poder-executivo-a-proceder-baixa-no-patrimonio-de-bens-moveis-inserviveis-que-menciona-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2.886, DE 01 DE JULHO DE 2021. "AUTORIZA O CHEFE DO PODER EXECUTIVO A PROCEDER BAIXA NO PATRIMÔNIO DE BENS MÓVEIS INSERVÍVEIS QUE MENCIONA, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo autorizado a proceder a baixa no patrimônio dos bens móveis inservíveis abaixo mencionados, em razão da exaustão total, furto ou por não apresentarem condições para os fins que se destinam: TERMO DE BAIXA DE BENS PATRIMONIAIS Item Nº Patrimônio Descrição do bem 1 5234 Balcão em fórmica 2 95 Mesa p/ impressora em fórmica cor branca 3 7735 ARQUIVO DE AÇO W3 CH 26 COD 60808 4 6354 Monitor samsung 18.5 lcd 5 8766 MONITOR PHILIPS 18,5 LED 193V5LSB23. 6 6023 Monitor AOC19" Widescreen. 7 11636 Nobreak Energy Lux 2500va 8 9981 RELÓGIO ELETRÔNICO DE PONTO BIOMÉTRICO CONTROL ID. 9 7463 ARMÁRIO VITRINE 10 3564 Fichário em fórmica texturizada c/04 gavetas cor bege 11 5327 Arquivo em madeira c/ 04 gavetas 12 10131 VENTILADOR DE PAREDE 60 CM MARCA VENTIDELTA 13 9840 LIQUIDIFICADOR ADVANCE TRITER MALLORY 14 9129 TV 32" PLEGADAS LED LG 32LY340C. 15 10597 Cadeira de alimentação Galzerano 16 10590 Cadeira de alimentação Galzerano 17 7997 CADEIRA ALTA DE ALIMENTAÇÃO PARA BEBÊ. 18 8743 CADEIRA INFANTIL REFEIÇÃO - GALZERANO 19 8742 CADEIRA INFANTIL REFEIÇÃO - GALZERANO 20 9130 TV 32" PLEGADAS LED LG 32LY340C. 21 9128 TV 32" PLEGADAS LED LG 32LY340C. 22 9778 BERÇO DENGO 60 CM BRANCO DALLABONA. 23 4431 Máquina de lavar Caixil 8 Kg. 24 8945 MAQUINA DE LAVAR ROUPAS 12 KG - ELETROLUX 25 10129 TORNEIRA ELÉTRICA CORONA 5700W ALTA DE BANCADA 26 11208 Torneira elétrica corona articulável 27 10133 Nobreak SMS 1400 VA NET 4 BivoltArt. 2º Os bens de propriedade do Município estão devidamente cadastrados junto ao patrimônio público.Art. 3º Esta Lei entra em vigor na data de sua publicação.Nova Veneza, SC, 01 de julho de 2021.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 01 de julho de 2021.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

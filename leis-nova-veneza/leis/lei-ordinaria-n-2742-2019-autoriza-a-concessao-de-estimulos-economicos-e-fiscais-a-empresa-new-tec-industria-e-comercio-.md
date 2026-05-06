@@ -1,0 +1,13 @@
+# LEI Nº 2.742, DE 22 DE NOVEMBRO DE 2019.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 26/11/2019
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2019/275/2742/lei-ordinaria-n-2742-2019-autoriza-a-concessao-de-estimulos-economicos-e-fiscais-a-empresa-new-tec-industria-e-comercio-de-etiquetas-ltda-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2.742, DE 22 DE NOVEMBRO DE 2019. "AUTORIZA A CONCESSÃO DE ESTÍMULOS ECONÔMICOS E FISCAIS À EMPRESA NEW TEC INDÚSTRIA E COMÉRCIO DE ETIQUETAS LTDA, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Esta Lei autoriza a concessão de estímulos econômicos e incentivos fiscais à empresa NEW TEC INDÚSTRIA E COMÉRCIO DE ETIQUETAS LTDA. (CNPJ nº 06.130.225/0001-49), diante da análise e aprovação do Conselho Municipal de Desenvolvimento Econômico (art. 1º, caput, Lei Municipal nº 2.424/15), homologada pelo Decreto Municipal nº 219/2019.Art. 2º Fica autorizada a concessão dos seguintes estímulos econômicos e incentivos fiscais:  I - Isenção dos seguintes tributos:  a) taxas incidentes sobre alvará e regularização de construção/ampliação, relacionadas ao projeto aprovado na Secretaria de Planejamento e Urbanismo;  b) 50% sobre ISSQN incidente sobre a construção, respeitados os limites legais;Art. 3º O descumprimento do cronograma de implantação e execução do projeto implicará na abertura de processo administrativo, para apurar responsabilidades e penalidades, que poderá ser da advertência à cassação do benefício concedido, sem prejuízo da reparação ao Município por eventuais danos, nos termos do art. 4º, § 2º, da Lei Municipal nº 2.424, de 14 de janeiro de 2015.Art. 4º As despesas decorrentes da presente Lei, correção por conta de dotações orçamentárias próprias, limitadas ao cronograma de implantação e execução do projeto, aprovado pelo Conselho Municipal Desenvolvimento Econômico.Art. 5º Esta Lei entra em vigor na data de sua publicação.Art. 6º Revogam-se as disposições em contrário.Nova Veneza, SC, 22 de novembro de 2019.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 22 de novembro de 2019.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

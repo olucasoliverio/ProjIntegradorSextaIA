@@ -1,0 +1,13 @@
+# DECRETO SAF Nº 55, DE 14 DE SETEMBRO DE 2022.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 23/09/2022
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2022/6/55/decreto-saf-n-55-2022-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-saude-credito-suplementar-no-valor-de-r-900000-00-por-conta-de-excesso-de-arrecadacao-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 55, DE 14 DE SETEMBRO DE 2022."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE SAÚDE, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 900.000,00, POR CONTA DE EXCESSO DE ARRECADAÇÃO, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 9º, inciso I, da Lei Municipal nº 2.917, de 23 de dezembro de 2021 e Lei Municipal nº 2.955 de 21 de julho de 2022, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 2.917, de 23 de dezembro de 2021 e Lei Municipal nº 2.955 de 21 de julho de 2022), em favor da Secretaria Municipal de Saúde, crédito suplementar no valor de R$ 900.000,00 (novecentos mil reais), por conta de excesso de arrecadação, para atender a programação abaixo discriminada: Órgão 13: SECRETARIA DE SAUDE Unidade 01: SECRETARIA DE SAUDE Proj./Ativ. 2.024: Manutenção da Rede Municipal de Saúde Aplicação: 3.3.90.00.00.00.00.00 0721 (10) - Aplicações Diretas....R$ 900.000,00 Parágrafo único. Os recursos necessários à abertura do crédito de que trata o caput do art. 1º decorrem do excesso de arrecadação, decorrente das emendas parlamentar nº 36000415523202100 e nº 36000440332202200.Art. 2º As despesas por conta do crédito de que trata o caput do artigo 1º, correspondentes aos recursos de processos, emendas impositivas estaduais e afins, ficam condicionadas e limitadas ao efetivo ingresso dos valores nos cofres do Município.Art. 3º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário, em especial o Decreto SAF nº 034, de 28 de julho de 2022.Nova Veneza, SC, 14 de setembro de 2022.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e registrado em 14 de setembro de 2022.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

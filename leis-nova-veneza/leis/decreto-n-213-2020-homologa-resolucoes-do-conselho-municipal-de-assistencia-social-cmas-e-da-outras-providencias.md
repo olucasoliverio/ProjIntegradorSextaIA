@@ -1,0 +1,13 @@
+# DECRETO Nº 213, DE 10 DE JULHO DE 2020.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 27/07/2020
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2020/22/213/decreto-n-213-2020-homologa-resolucoes-do-conselho-municipal-de-assistencia-social-cmas-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 213, DE 10 DE JULHO DE 2020. "HOMOLOGA RESOLUÇÕES DO CONSELHO MUNICIPAL DE ASSISTÊNCIA SOCIAL - CMAS, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 1.459, de 28 de dezembro de 2000, DECRETA:Art. 1º Fica homologada a Resolução nº 07/CMAS/2020, do Conselho Municipal de Assistência Social, datada de 30 de junho de 2020, anexa a este Decreto, que aprova a prestação de contas do Cofinanciamento Estadual dos Serviços de Proteção Social Básica/Investimento entre o Fundo Estadual de Assistência Social (FEAS) e o Fundo Municipal de Assistência Social de Nova Veneza (FMAS), referente ao ano de 2019.Art. 2º Fica homologada a Resolução nº 08/CMAS/2020, do Conselho Municipal de Assistência Social, datada de 30 de junho de 2020, anexa a este Decreto, que aprova a prestação de contas do Cofinanciamento Estadual dos Serviços de Proteção Social Básica/Custeio entre o Fundo Estadual de Assistência Social (FEAS) e o Fundo Municipal de Assistência Social de Nova Veneza (FMAS), referente ao ano de 2019.Art. 3º Fica homologada a Resolução nº 09/CMAS/2020, do Conselho Municipal de Assistência Social, datada de 27 de fevereiro de 2020, anexa a este Decreto, que aprova o Termo de Aceite que estabelece as metas de atendimento física e financeira para operacionalização da adesão ao repasse financeiro emergencial de recursos federais para execução socioassistenciais e estruturação da rede suas.Art. 4º Fica homologada a Resolução nº 09/CMAS/2020, do Conselho Municipal de Assistência Social, datada de 27 de fevereiro de 2020, anexa a este Decreto, que aprova o Plano de Ação da Portaria nº 369 que estabelece as metas de atendimento física e financeira para operacionalização da adesão ao repasse financeiro emergencial de recursos federais para execução de ações socioassistenciais e estruturação da rede suas.Art. 5º Este Decreto entra em vigor na data de sua publicação, revogando-se as disposições em contrário.Nova Veneza, SC, 10 de julho de 2020.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 10 de julho de 2020.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,13 @@
+# LEI Nº 2.680, DE 14 DE MARÇO DE 2019.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 26/04/2019
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2019/268/2680/lei-ordinaria-n-2680-2019-institui-a-semana-municipal-de-acoes-voltadas-a-lei-maria-da-penha-nas-escolas-de-ensino-fundamental-series-finais-e-de-ensino-medio-publicas-e-privadas
+
+## Texto Completo
+
+LEI Nº 2.680, DE 14 DE MARÇO DE 2019.INSTITUI A SEMANA MUNICIPAL DE AÇÕES VOLTADAS À LEI MARIA DA PENHA, NAS ESCOLAS DE ENSINO FUNDAMENTAL - SÉRIES FINAIS E DE ENSINO MÉDIO, PÚBLICAS E PRIVADAS.ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica instituída a Semana Municipal de Ações Voltadas à Lei Maria da Penha - Lei federal nº 11.340, de 7 de agosto de 2006, nas escolas de ensino fundamental - séries finais e de ensino médio, públicas e privadas, localizadas no Município de Nova Veneza.  Parágrafo único. As ações serão desenvolvidas, anualmente, na primeira de semana do mês de agosto.Art. 2º A presente Lei objetiva proporcionar aos alunos:  I - conhecimento e importância da Lei Maria da Penha;  II - conscientização sobre a prevenção, combate e punição contra atos de violência sofridos pela mulher;  III - contextualização da realidade atual da mulher;  IV - viabilização da prática de boas ações relacionadas à:  a) paz;  b) não-violência;  c) igualdade de condições de vida;  d) plena cidadania;  e) conquista de direitos;  f) dignidade e respeito; e  g) outras ações voltadas ao bem-estar da mulher.  V - possibilidade da erradicação da violência contra a mulher; e  VI - reforço da ideia sobre igualdade de condições de vida entre homem e mulher.Art. 3º As escolas poderão optar pela prática das seguintes ações em sala de aula ou fora dela:  I - palestras;  II - estudos e debates;  III - trabalhos;  IV - visitas; e  V - outras atividades a critério da escola.Art. 4º A Semana Municipal de Ações Voltadas à Lei Maria da Penha passará a fazer parte do Calendário de Eventos do Município.Art. 5º Esta Lei poderá ser regulamentada no que couber.Art. 6º Esta Lei entra em vigor na data de sua publicação.Nova Veneza, SC, 14 de março de 2019.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 14 de março de 2019.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

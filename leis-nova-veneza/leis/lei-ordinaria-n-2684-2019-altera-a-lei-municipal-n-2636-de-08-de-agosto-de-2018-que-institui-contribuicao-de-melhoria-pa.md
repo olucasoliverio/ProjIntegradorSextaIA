@@ -1,0 +1,13 @@
+# LEI Nº 2684, DE 28 DE MARÇO DE 2019.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 02/04/2019
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2019/269/2684/lei-ordinaria-n-2684-2019-altera-a-lei-municipal-n-2636-de-08-de-agosto-de-2018-que-institui-contribuicao-de-melhoria-para-fazer-face-ao-custo-das-obras-publicas-que-menciona-das-quais-decorram-valorizacao-imobiliaria-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2684, DE 28 DE MARÇO DE 2019. "ALTERA A LEI MUNICIPAL nº 2.636, DE 08 DE AGOSTO DE 2018, QUE INSTITUI CONTRIBUIÇÃO DE MELHORIA, PARA FAZER FACE AO CUSTO DAS OBRAS PÚBLICAS QUE MENCIONA, DAS QUAIS DECORRAM VALORIZAÇÃO IMOBILIÁRIA, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º A Lei Municipal nº 2.636, de 08 de agosto de 2018, que institui contribuição de melhoria, para fazer face ao custo das obras públicas que menciona, das quais decorram valorização imobiliária, passa a vigorar com as seguintes alterações:  "Art. 1º ...  ...  III - Pavimentação asfáltica da Rua Josefina Sachet Milanez, no Distrito de Nossa Senhora de Caravaggio, com extensão de 318,86 metros;  IV - Pavimentação asfáltica da Rua Giácomo Milanez, no Distrito de Nossa Senhora de Caravaggio, com extensão aproximada de 371,98 metros;  V - Pavimentação asfáltica da Rua Joaquim Tomazi, no Distrito de Nossa Senhora de Caravaggio, com extensão aproximada de 577,26 metros;  VI - Pavimentação asfáltica da Rua Afonso Spillere, no Distrito de Nossa Senhora de Caravaggio, com extensão aproximada de 209,51 metros."  ...  "Art. 9º Os contribuintes das obras descritas nos incisos II, III, IV, V e VI do art. 1º, por estarem inseridos em Distrito Industrial, poderão utilizar o regime de tributação diferenciado instituído pela Lei Municipal nº 2.615, de 20 de abril de 2018."Art. 2º As despesas decorrentes da execução desta Lei correrão por conta de dotações orçamentárias próprias, suplementadas se necessário.Art. 3º Esta Lei entra em vigor na data de sua publicação.Art. 4º Revogam-se as disposições em contrário.Nova Veneza, SC, 28 de março de 2019.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 28 de março de 2019.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

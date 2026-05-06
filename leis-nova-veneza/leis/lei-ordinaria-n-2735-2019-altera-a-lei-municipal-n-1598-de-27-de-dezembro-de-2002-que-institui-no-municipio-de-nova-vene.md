@@ -1,0 +1,15 @@
+# LEI Nº 2.735, DE 18 DE NOVEMBRO DE 2019.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 25/11/2020
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2019/274/2735/lei-ordinaria-n-2735-2019-altera-a-lei-municipal-n-1598-de-27-de-dezembro-de-2002-que-institui-no-municipio-de-nova-veneza-sc-a-contribuicao-para-custeio-da-iluminacao-publica-prevista-no-artigo-149-a-da-constituicao-federal-e-da-outras-providencias
+
+## Texto Completo
+
+Versão consolidada, com alterações até o dia 20/11/2020
+
+                        LEI Nº 2.735, DE 18 DE NOVEMBRO DE 2019.(Revogada pela Lei nº 2849/2020) "ALTERA A LEI MUNICIPAL Nº 1.598, DE 27 DE DEZEMBRO DE 2002, QUE INSTITUI NO MUNICÍPIO DE NOVA VENEZA - SC - A CONTRIBUIÇÃO PARA CUSTEIO DA ILUMINAÇÃO PÚBLICA PREVISTA NO ARTIGO 149-A DA CONSTITUIÇÃO FEDERAL, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º O Anexo I da Lei Municipal nº 1.598, de 27 de dezembro de 2002, que institui no Município de Nova Veneza - SC - a Contribuição para Custeio da Iluminação Pública prevista no artigo 149-A da Constituição Federal, passa a vigorar com as seguintes alterações:  "ANEXO I"A cobrança da Contribuição para Custeio do Serviço de Iluminação Pública relativa aos imóveis edificados efetuar-se-á mensalmente e será calculado por tipo de ligação como segue:  I - CONSUMIDORES RESIDENCIAIS:  FAIXA DE CONSUMO/KW/h   VALOR DA CONTRIBUIÇÃO (EM R$)     0 a 30   Isento     31 a 50   3,67     51 a 100   5,23     101 a 200   7,34     201 a 500   9,95     501 a 1.000   10,68     1.001 a 2.500   28,31    2.501 a 5.000   41,93     5.001 a 7.500   62,90     7.501 a 10.000   83,86     Maior que 10.000   209,66    II - CONSUMIDORES COMERCIAIS:  FAIXA DE CONSUMO/KW/h   VALOR DA CONTRIBUIÇÃO (EM R$)     0 a 30   Isento     31 a 50   6,29     51 a 100   14,66     101 a 200   20,96     201 a 500   41,93     501 a 1.000   73,38     1.001 a 2.500   83,86    2.501 a 5.000   104,83     5.001 a 7.500   157,24     7.501 a 10.000   178,21     Maior que 10.000   314,51    III - CONSUMIDORES INDUSTRIAIS:  FAIXA DE CONSUMO/KW/h   VALOR DA CONTRIBUIÇÃO (EM R$)     0 a 30   Isento     31 a 50   10,48     51 a 100   20,96     101 a 200   31,45     201 a 500   41,93     501 a 1.000   94,34     1.001 a 2.500   115,31    2.501 a 5.000   157,24     5.001 a 7.500   230,62     7.501 a 10.000   251,59     Maior que 10.000   419,33   Art. 2º Esta Lei entra em vigor na data de sua publicação, produzindo efeitos somente 90 (noventa) dias após sua publicação (art. 150, III, CRFB/88), revogando-se as disposições em contrário, em especial a Lei Municipal nº 2.665, de 18 de dezembro de 2018.Nova Veneza, SC, 18 de novembro de 2019.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 18 de novembro de 2019.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

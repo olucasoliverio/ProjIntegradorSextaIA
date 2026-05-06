@@ -1,0 +1,13 @@
+# DECRETO GP Nº 68, DE 21 DE DEZEMBRO DE 2022.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 23/12/2022
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2022/7/68/decreto-gp-n-68-2022-estabelece-o-valor-unitario-de-referencia-vur-relativo-a-taxa-de-coleta-de-residuos-solidos-tcrs-para-o-exercicio-de-2023-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 68, DE 21 DE DEZEMBRO DE 2022. "ESTABELECE O VALOR UNITÁRIO DE REFERÊNCIA (VUR) RELATIVO À TAXA DE COLETA DE RESÍDUOS SÓLIDOS (TCRS) PARA O EXERCÍCIO DE 2023, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 4º, alínea "a", da Lei Municipal nº 1.806, de 18 de dezembro de 2006, DECRETA:Art. 1º Fica estabelecido em 286,88 (duzentos e oitenta e seis vírgula oitenta e oito) o Valor Unitário de Referência (VUR) relativo à Taxa de Coleta de Resíduos Sólidos (TCRS) para o exercício de 2023, nos termos do art. 4º, alínea "a", da Lei Municipal nº 1.806, de 18 de dezembro de 2006, conforme Anexo I (Relatório Técnico).Art. 2º Este Decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza, SC, 21 de dezembro de 2022.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 21 de dezembro de 2022.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e FinançasANEXO IRELATÓRIO TÉCNICO  1. CÁLCULO DA TAXA:A Taxa de Coleta de Resíduos Sólidos - TCRS, é calculada pelo resultado da multiplicação entre o Valor Unitário de Referência (VUR), o Fator de Freqüência (Ffreq), o Fator de Localização (Floc) e o Fator de Porte (Fpor), conforme fórmula que segue:TLC = VUR x Ffreq x Floc x Fpor  2. DEFINIÇÃO DO VALOR UNITÁRIO DE REFERÊNCIA:O Valor Unitário de Referência (VUR) corresponde ao custo dos serviços realizados durante um ano rateado entre os cadastros tributáveis (unidade autônoma).Custo dos serviços1: R$ 1.072.082,83 (um milhão, setenta e dois mil e oitenta e dois reais e oitenta e três centavos).Cadastros tributáveis: 3.737 (três mil setecentos e trinta e sete).VUR = 1.072.082,83/3.737 = 286,88Nova Veneza, SC, 21 de dezembro de 2022.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e FinançasBRUNO COLOMBO BOAROLIProcurador-Geral do MunicípioJULIANO MONDARDO DAL MOLINPresidente da FundavePara o cálculo do custo dos serviços utilizou-se, para fins de projeção, o total de despesas empenhadas no exercício de 2022, nos termos do art. 4º, alínea "a", da Lei Municipal nº 1.806/06.
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

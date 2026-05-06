@@ -1,0 +1,13 @@
+# LEI Nº 2.789, DE 05 DE JUNHO DE 2020.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 23/06/2020
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2020/279/2789/lei-ordinaria-n-2789-2020-autoriza-inserir-atividade-fonte-de-recursos-e-abertura-de-credito-especial-ao-orcamento-do-municipio-do-ano-em-curso-na-unidade-prefeitura-municipal-por-conta-excesso-de-arrecadacao-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2.789, DE 05 DE JUNHO DE 2020. "AUTORIZA INSERIR ATIVIDADE, FONTE DE RECURSOS E ABERTURA DE CRÉDITO ESPECIAL AO ORÇAMENTO DO MUNICÍPIO DO ANO EM CURSO NA UNIDADE PREFEITURA MUNICIPAL, POR CONTA EXCESSO DE ARRECADAÇÃO, E DÁ OUTRAS PROVIDÊNCIAS"ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, faço saber que a Câmara de Vereadores aprovou e eu sanciono a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo Municipal, autorizado a inserir Projeto/Atividade específico, Fonte de Recursos e abrir crédito especial ao Orçamento da Unidade Prefeitura Municipal de Nova Veneza, por conta do excesso de arrecadação, na forma do artigo 43, II, da Lei Federal 4.320/64, até o valor de R$ 35.000,00 (trinta e cinco mil reais), conforme abaixo especificado:Órgão 02 Gabinete do PrefeitoUnidade 04 Manutenção do Fundo Municipal da Infância e AdolescênciaFuncional Programática: 08.243 - Assistência Social - Assistência à Criança e ao AdolescenteAtividade 2.078: Manutenção do FIAModalidade: 3.3.90.00.00.0707 (__) - Aplicações Diretas .. R$ 25.000,00Modalidade: 4.4.90.00.00.0707 (__) - Aplicações Diretas .. R$ 10.000,00TOTAL .................................................... R$ 35.000,00Art. 2º Os recursos destinados aos créditos do artigo anterior correrão por conta do excesso de arrecadação da Fonte de Recursos 707 - Transferências de Recursos do FIA, creditados na Conta Corrente Nº 21.064-1, Ag. 2357-4 do Banco do Brasil.Art. 3º Ficam autorizados os ajustes que se fizerem necessários nos anexos de metas físicas e fiscais do Plano Plurianual 2018/2021 - Lei Municipal nº 2.573/2017 e na Lei de Diretrizes Orçamentárias 2020 - Lei Municipal nº 7.712/2019, por conta das alterações constantes da presente Lei.Art. 4º Esta Lei entra em vigor na data de sua publicação.Art. 5º Revogam-se as disposições em contrário.Nova Veneza, SC, 05 de junho de 2020.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 05 de junho de 2020.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

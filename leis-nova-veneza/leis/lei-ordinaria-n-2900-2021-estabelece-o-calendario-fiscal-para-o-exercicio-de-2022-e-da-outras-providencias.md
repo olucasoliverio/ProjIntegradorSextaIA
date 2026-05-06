@@ -1,0 +1,14 @@
+# LEI Nº 2.900, DE 29 DE SETEMBRO DE 2021.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 15/04/2022
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2021/290/2900/lei-ordinaria-n-2900-2021-estabelece-o-calendario-fiscal-para-o-exercicio-de-2022-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2.900, DE 29 DE SETEMBRO DE 2021. "ESTABELECE O CALENDÁRIO FISCAL PARA O EXERCÍCIO DE 2022, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza/SC, no uso de suas atribuições legais, previstas na Lei Orgânica Municipal, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica estabelecido o calendário fiscal do Município de Nova Veneza, para o exercício de 2022, obedecendo-se os seguintes cronogramas:  I - I.P.T.U. - IMPOSTO PREDIAL E TERRITORIAL URBANO:  a) Pagamento em cota única COM DESCONTO de 10% (dez por cento), com vencimento para o dia 15/04/2022. Aos contribuintes que não possuírem débitos de IPTU nos exercícios anteriores, será concedido mais 10% (dez por cento) de descontos;  b) Pagamento em cinco (05) parcelas, SEM DESCONTO, nos seguintes vencimentos:1ª Parcela - 15/04/2022;2ª Parcela - 15/05/2022;3ª Parcela - 15/06/2022;4ª Parcela - 15/07/2022;5ª Parcela - 15/08/2022.  Parágrafo único. Aplicam-se à Taxa de Coleta de Resíduos Sólidos (TCRS) os mesmos percentuais de desconto e datas de pagamento prescritos neste artigo.  II - ALVARÁ (T.V.C.P.N.U.) - TAXA DE VERIFICAÇÃO DO CUMPRIMENTO DAS POSTURAS E NORMAS URBANÍSTICAS:  a) Pagamento em cota única com 10% (dez por cento) de desconto, com vencimento no dia 10/03/2022;  b) Pagamento em três (03) parcelas, SEM DESCONTO, com vencimento nos dias 10/03/2022, 10/04/2022 e 10/05/2022.  III - I.S.S. - IMPOSTO SOBRE SERVIÇOS:  1) FIXO:  a) Pagamento em cota única com 10% (dez por cento) de desconto, com vencimento no dia 15/04/2022;  b) Pagamento em nove (09) parcelas, SEM DESCONTO, a contar do dia 15/04/2022, com vencimento no mesmo dia nos meses subsequentes.  2) HOMOLOGADO:  a) Com vencimento no dia 10 (dez) do mês subsequente.  IV - ALVARÁ SANITÁRIO ANUAL (POR ATIVIDADE DESENVOLVIDA):  a) Pagamento em cota única com 10% (dez por cento) de desconto, com vencimento no dia 10/03/2022;  b) Pagamento em três (03) parcelas, SEM DESCONTO, com vencimento nos dias 10/03/2022, 10/04/2022 e 10/05/2022.Art. 2º Esta Lei entra em vigor na data de sua publicação.Nova Veneza, SC, 29 de setembro de 2021.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 29 de setembro de 2021.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

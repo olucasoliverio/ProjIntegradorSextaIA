@@ -1,0 +1,16 @@
+# LEI Nº 2.916, DE 23 DE DEZEMBRO DE 2021.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 20/12/2024
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2021/292/2916/lei-ordinaria-n-2916-2021-autoriza-a-concessao-de-estimulos-economicos-e-fiscais-a-empresa-wgm-refratarios-eireli-e-da-outras-providencias
+
+## Texto Completo
+
+Versão consolidada, com alterações até o dia 18/12/2024
+
+                        LEI Nº 2.916, DE 23 DE DEZEMBRO DE 2021.(Revogada pela Lei nº 3124/2024) "AUTORIZA A CONCESSÃO DE ESTÍMULOS ECONÔMICOS E FISCAIS À EMPRESA WGM REFRATARIOS EIRELI, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Esta Lei autoriza a concessão de estímulos econômicos e incentivos fiscais à empresa WGM REFRATARIOS EIRELI. (CNPJ nº 10.665.061/0001-21), diante da análise e aprovação do Conselho Municipal de Desenvolvimento Econômico (art. 1º, caput, Lei Municipal nº 2.424/15), homologada pelo Decreto Municipal GP nº 074/2021.Art. 2º Fica autorizada a concessão dos seguintes estímulos econômicos e incentivos fiscais:  I - Concessão de direito real de uso, com os direitos e deveres previstos na Lei Municipal nº 2.424/2015, de uma fração de terra, localizado na Rodovia Antônio Nuernberg, Parque Industrial do Rio Guarapari, denominado Área 06, com 5.423,50 m² (cinco mil quatrocentos e vinte e três metros e cinquenta centímetros quadrados), registrado sob matrícula nº 15.255, do 2º Ofício do Registro de Imóveis da Comarca de Criciúma.Art. 3º A concessão de direito de uso real de que trata o artigo anterior poderá ser convertida em doação, desde que condicionada ao uso do imóvel para os fins que justificaram a concessão, passados mais de 10 (dez) anos de sua efetiva utilização, e que a fiscalização do município emita relatório das condições do empreendimento ao tempo do requerimento da doação, o qual deverá ser aprovado pelo Conselho de Desenvolvimento Econômico, em procedimento próprio (art. 2º, §1º da Lei 2.424/15).Art. 4º O descumprimento do cronograma de implantação e execução do projeto implicará na abertura de processo administrativo, para apurar responsabilidades e penalidades, que poderá ser da advertência à cassação do benefício concedido, sem prejuízo da reparação ao Município por eventuais danos, nos termos do art. 4º, § 2º, da Lei Municipal nº 2.424, de 14 de janeiro de 2015.Art. 5º As despesas decorrentes da presente Lei, correrão por conta de dotações orçamentárias próprias.Art. 6º Esta Lei entra em vigor na data de sua publicação.Art. 7º Revogam-se as disposições em contrário, em especial a Lei Municipal nº 2.748/2019.Nova Veneza, SC, 23 de dezembro de 2021.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 23 de dezembro de 2021.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,13 @@
+# LEI Nº 2.704, DE 26 DE JULHO DE 2019.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 14/08/2019
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2019/271/2704/lei-ordinaria-n-2704-2019-ratifica-o-protocolo-de-intencoes-e-autoriza-o-ingresso-do-municipio-de-nova-veneza-sc-em-consorcio-intermunicipal-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2.704, DE 26 DE JULHO DE 2019. "RATIFICA O PROTOCOLO DE INTENÇÕES E AUTORIZA O INGRESSO DO MUNICÍPIO DE NOVA VENEZA, SC, EM CONSÓRCIO INTERMUNICIPAL, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica ratificado o Protocolo de Intenções de instituição do CONSÓRCIO INTERMUNICIPAL MULTIFINALITÁRIO DA AMREC - CIM-AMREC, com a finalidade estabelecer relações de cooperação federativa entre Municípios consorciados, inclusive a realização de objetivos de interesse comum, propiciando a gestão associada de serviços públicos, visando a melhoria da infraestrutura, da qualidade de vida da população e o desenvolvimento econômico e social dos municípios consorciados, mediante a implementação de políticas públicas de interesse comum.  Parágrafo único. O Protocolo de Intenções, após sua ratificação por pelo menos 5 (cinco) dos municípios que o subscrevem, converter-se-á no contrato de consórcio público.Art. 2º Fica autorizado o ingresso do Município de Nova Veneza, SC no CIM-AMREC, nos termos do Protocolo de Intenções ora ratificado.Art. 3º O CIM-AMREC, será constituído sob a forma de consórcio público, com personalidade jurídica de direito público e natureza autárquica.Art. 4º Fica autorizado o Município de Nova Veneza (SC) a firmar contrato de rateio com o CIM-AMREC, de acordo com cada programa de atendimento, visando atender as finalidades do consórcio, conforme estabelecido no protocolo de intenções e Assembleia Geral.Art. 5º Fica aplicada, para reger as relações jurídicas entre os Municípios consorciados e o Consórcio Intermunicipal Multifinalitário da AMREC, a Lei Federal nº 11.107, de 06 de abril de 2005.Art. 6º As despesas decorrentes da execução da presente Lei correrão por conta de dotações orçamentárias próprias, suplementadas se necessário.Art. 7º Esta Lei entra em vigor na data de sua publicação.Art. 8º Revogam-se as disposições em contrário.Nova Veneza, SC, 26 de julho de 2019.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 26 de julho de 2019.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

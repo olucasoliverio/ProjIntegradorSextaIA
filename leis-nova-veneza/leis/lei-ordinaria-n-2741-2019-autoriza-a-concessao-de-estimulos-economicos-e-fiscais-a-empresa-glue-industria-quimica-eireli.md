@@ -1,0 +1,15 @@
+# LEI Nº 2.741, DE 22 DE NOVEMBRO DE 2019.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 20/12/2024
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2019/275/2741/lei-ordinaria-n-2741-2019-autoriza-a-concessao-de-estimulos-economicos-e-fiscais-a-empresa-glue-industria-quimica-eireli-e-da-outras-providencias
+
+## Texto Completo
+
+Versão consolidada, com alterações até o dia 18/12/2024
+
+                        LEI Nº 2.741, DE 22 DE NOVEMBRO DE 2019.(Revogada pela Lei nº 3125/2024) "AUTORIZA A CONCESSÃO DE ESTÍMULOS ECONÔMICOS E FISCAIS À EMPRESA GLUE INDÚSTRIA QUÍMICA EIRELI, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Esta Lei autoriza a concessão de estímulos econômicos e incentivos fiscais à empresa GLUE INDÚSTRIA QUÍMICA EIRELI. (CNPJ nº 08.982.975/0001-74), diante da análise e aprovação do Conselho Municipal de Desenvolvimento Econômico (art. 1º, caput, Lei Municipal nº 2.424/15), homologada pelo Decreto Municipal nº 218/2019.Art. 2º Fica autorizada a concessão dos seguintes estímulos econômicos e incentivos fiscais:  I - Cessão de uso de área de terra (área 05) para instalação/construção de pavilhão, com área de 2.709,90m2 (dois mil, setecentos e nove metros e noventa centímetros quadrados), pelo prazo de 10 (dez) anos, obrigando o empreendedor a observar os requisitos legais, conforme projeto apresentado perante a Secretaria Municipal de Planejamento e Urbanismo (art. 2º, inc. II da Lei 2.424/15).Art. 3º A concessão de direito de uso real de que trata o artigo anterior poderá ser convertida em doação, desde que condicionada ao uso do imóvel para os fins que justificaram a concessão, passados mais de 10 (dez) anos de sua efetiva utilização, e que a fiscalização do município emita relatório das condições do empreendimento ao tempo do requerimento da doação, o qual deverá ser aprovado pelo Conselho de Desenvolvimento Econômico, em procedimento próprio (art. 2º, 1 da Lei 2.424/15).Art. 4º O descumprimento do cronograma de implantação e execução do projeto implicará na abertura de processo administrativo, para apurar responsabilidades e penalidades, que poderá ser da advertência à cassação do benefício concedido, sem prejuízo da reparação ao Município por eventuais danos, nos termos do art. 4º, § 2º, da Lei Municipal nº 2.424, de 14 de janeiro de 2015.Art. 5º As despesas decorrentes da presente Lei, correção por conta de dotações orçamentárias próprias, limitadas ao cronograma de implantação e execução do projeto, aprovado pelo Conselho Municipal Desenvolvimento Econômico.Art. 6º Esta Lei entra em vigor na data de sua publicação.Art. 7º Revogam-se as disposições em contrário.Nova Veneza, SC, 22 de novembro de 2019.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 22 de novembro de 2019.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,13 @@
+# DECRETO Nº 515, DE 30 DE OUTUBRO DE 2019.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 26/11/2019
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2019/52/515/decreto-n-515-2019-homologa-parecer-do-conselho-municipal-de-desenvolvimento-economico-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 515, DE 30 DE OUTUBRO DE 2019. "HOMOLOGA PARECER DO CONSELHO MUNICIPAL DE DESENVOLVIMENTO ECONÔMICO, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 2.424, de 14 de janeiro de 2015, DECRETA:Art. 1º Fica homologado o parecer do Conselho Municipal de Desenvolvimento Econômico relativo à concessão de estímulos econômicos e incentivos fiscais à empresa CONFECÇÕES VANELISE LTDA, inscrita no CNPJ sob o nº 91.879.718/0001-55, com sede na Rodovia José Spillere, nº 1.502, Bloco A, Distrito de Nossa Senhora do Caravaggio, Nova Veneza, SC, nos termos da Lei Municipal nº 2.424, de 14 de janeiro de 2015, objetivando os seguintes estímulos econômicos e incentivos fiscais:  I - Doação de uma área de terra de 50.000,00 m² (cinquenta mil metros quadrados), de propriedade do Município de Nova Veneza, registrada junto ao 2º Ofício do Registro de Imóveis da Comarca de Criciúma sob a matrícula nº 17.199, condicionada à instituição de garantia real no imóvel registrado junto ao 2º Ofício do Registro de Imóveis da Comarca de Criciúma sob a matrícula nº 14.678, de propriedade da Requerente, a fim de garantir o cumprimento do cronograma de implantação e execução do projeto;  II - Execução dos serviços de terraplanagem e infraestrutura, nos termos do projeto apresentado;  III - Isenção dos seguintes tributos, pelo prazo de 10 (dez) anos: a) taxas incidentes sobre a construção/ampliação; b) IPTU; c) ISSQN incidente sobre a construção, respeitados os limites legais; d) taxas de licença para localização, verificação de cumprimento de posturas e normas urbanísticas e vigilância sanitária.Art. 2º Este Decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza, SC, 30 de outubro de 2019.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 30 de outubro de 2019.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

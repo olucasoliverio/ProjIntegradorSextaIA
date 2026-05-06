@@ -1,0 +1,13 @@
+# DECRETO SAF Nº 44, DE 29 DE AGOSTO DE 2022.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 23/09/2022
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2022/5/44/decreto-saf-n-44-2022-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-do-fundo-de-saneamento-basico-credito-suplementar-no-valor-de-r-75000-00-por-conta-da-anulacao-de-saldos-de-dotacoes-orcamentarias-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 44, DE 29 DE AGOSTO DE 2022."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DO FUNDO DE SANEAMENTO BÁSICO, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 75.000,00, POR CONTA DA ANULAÇÃO DE SALDOS DE DOTAÇÕES ORÇAMENTÁRIAS, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 2.917, de 23 de dezembro de 2021, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 2.917, de 23 de dezembro de 2021), em favor do fundo de saneamento básico, crédito suplementar no valor de R$ 75.000,00 (setenta e cinco mil reais), por conta da anulação de saldos de dotações orçamentárias, para atender a programação abaixo discriminada: Órgão 15: FUNDO DE SANEAMENTO BÁSICO Unidade 01: Depto.Planej./Desenv.Urbano/Cadastro Proj./Ativ.: 2.050 Manutenção e Funcionamento do FUNSAB Aplicação: 3.3.90.00.00.00.00.00 0700 (149) - Aplicações Diretas....R$ 75.000,00Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º decorrem da anulação parcial da seguinte dotação orçamentária: Órgão 15: FUNDO DE SANEAMENTO BÁSICO Unidade 01: Depto.Planej./Desenv.Urbano/Cadastro Proj./Ativ.: 2.050 Manutenção e Funcionamento do FUNSAB Aplicação: 3.1.90.00.00.00.00.00 0700 (148) - Aplicações Diretas....R$ 50.000,00 Órgão 15: FUNDO DE SANEAMENTO BÁSICO Unidade 01: Depto.Planej./Desenv.Urbano/Cadastro Proj./Ativ.: 2.050 Manutenção e Funcionamento do FUNSAB Aplicação: 4.4.90.00.00.00.00.00 0700 (151) - Aplicações Diretas....R$ 25.000,00Art. 3º Este Decreto entra em vigor na data de sua publicação, revogam-se as disposições em contrário.Nova Veneza, SC, 29 de agosto de 2022.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e registrado em 29 de agosto de 2022.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

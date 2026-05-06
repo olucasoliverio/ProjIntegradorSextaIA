@@ -1,0 +1,14 @@
+# LEI Nº 2.884, DE 24 DE JUNHO DE 2021.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 28/06/2021
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2021/289/2884/lei-ordinaria-n-2884-2021-autoriza-o-poder-executivo-municipal-a-firmar-termo-de-cessao-de-uso-de-veiculo-com-a-associacao-feminina-de-assistencia-veneziana-afave-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2.884, DE 24 DE JUNHO DE 2021. "AUTORIZA O PODER EXECUTIVO MUNICIPAL A FIRMAR TERMO DE CESSÃO DE USO DE VEÍCULO COM A ASSOCIAÇÃO FEMININA DE ASSISTÊNCIA VENEZIANA - AFAVE, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica, o Poder Executivo Municipal, autorizado a firmar Termo de Cessão de Uso com a Associação Feminina de Assistência Veneziana - AFAVE, para a cessão de uso, a título gratuito, de 1 (um) veículo marca Chevrolet, modelo Spin 1.8L MT LTZ, combustível álcool e gasolina, ano de fabricação 2018, modelo 2018, cor branca, chassi nº 9BGJC7520JB260170, placa QJI-7665, renavam 1157294801.  Parágrafo único. O bem descrito no caput deste artigo destina-se, exclusivamente, para a execução de atividades da Associação Feminina de Assistência Veneziana - AFAVE.Art. 2º A cessão de uso de que trata esta Lei terá vigência pelo prazo de 5 (cinco) anos, a contar da assinatura do respectivo Termo de Cessão, podendo ser prorrogada através de Termo Aditivo.Art. 3º As despesas decorrentes da execução da presente Lei, referente a manutenção, abastecimento, demais despesas veiculares e multas, bem como as decorrentes de acidentes (materiais ou pessoais), correrão por conta da entidade beneficiada - AFAVE.Art. 4º Fica extinto o termo de permissão de uso, realizado no dia 02 de janeiro de 2015, com a Associação Feminina de Assistência Veneziana - AFAVE, retornando ao patrimônio municipal o veículo marca Renault, modelo Sandero Auth 10, combustível álcool e gasolina, ano de fabricação 2014, modelo 2015, cor branca, chassi nº 93Y5SRD04FJ552552, placas QHC0348, renavam 1026963971, para atender as necessidades da Municipalidade.  Parágrafo único. Para atender as demandas da saúde, o bem descrito no caput deste artigo poderá ser destinado mediante instrumento próprio, ao Fundo Municipal de Saúde.Art. 5º Esta Lei entra em vigor na data de sua publicação.Nova Veneza, SC, 24 de junho de 2021.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 24 de junho de 2021.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

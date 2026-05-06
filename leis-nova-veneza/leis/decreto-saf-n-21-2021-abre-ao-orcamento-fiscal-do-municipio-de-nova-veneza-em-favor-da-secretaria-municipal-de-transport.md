@@ -1,0 +1,13 @@
+# DECRETO SAF Nº 21, DE 29 DE ABRIL DE 2021.
+
+**Tipo:** DECRETO SAF Nº
+**Número:** 
+**Data:** 27/10/2021
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-saf/2021/3/21/decreto-saf-n-21-2021-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-transportes-obras-e-servicos-urbanos-credito-suplementar-no-valor-de-r-49496-79-por-conta-da-anulacao-de-saldos-de-dotacoes-orcamentarias-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO SAF Nº 21, DE 29 DE ABRIL DE 2021."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE TRANSPORTES, OBRAS E SERVIÇOS URBANOS, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 49.496,79, POR CONTA DA ANULAÇÃO DE SALDOS DE DOTAÇÕES ORÇAMENTÁRIAS, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 8º, da Lei Municipal nº 2.841, de 09 de outubro de 2020, DECRETA:Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 2.841, de 09 de outubro de 2020), em favor da Secretaria Municipal Transportes, Obras e Serviços Urbanos, crédito suplementar no valor de R$ 49.496,79 (quarenta e nove mil, quatrocentos e noventa e seis reais e setenta e nove centavos), por conta da anulação de saldos de dotações orçamentárias, para atender a programação abaixo discriminada:Órgão 10: SECRETARIA DE TRANSP. OBRAS E SERV.URB.Unidade 01: Departamento de Estradas e RodagemProj./Ativ.: 1.048 Sinalização de Vias, Bens Públicos e SegurançaAplicação: 3.3.90.00.00.00.00.00 0754 (103) - Aplicações Diretas .. R$ 49.496,79Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º decorrem da anulação parcial da seguinte dotação orçamentária:Órgão 10: SECRETARIA DE TRANSP. OBRAS E SERV.URB.Unidade 01: Departamento de Estradas e RodagemProj./Ativ.: 1.048 Sinalização de Vias, Bens Públicos e SegurançaAplicação: 4.4.90.00.00.00.00.00 0754 (106) - Aplicações Diretas .. R$ 49.496,79Art. 3º Este Decreto entra em vigor na data de sua publicação, revogando-se as disposições em contrário.Nova Veneza, SC, 29 de abril de 2021.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e registrado em 29 de abril de 2021.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

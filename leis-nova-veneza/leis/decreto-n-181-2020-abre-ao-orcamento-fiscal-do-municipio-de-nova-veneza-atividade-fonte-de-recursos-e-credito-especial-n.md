@@ -1,0 +1,13 @@
+# DECRETO Nº 181, DE 08 DE JUNHO DE 2020.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 23/06/2020
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2020/19/181/decreto-n-181-2020-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-atividade-fonte-de-recursos-e-credito-especial-no-valor-de-r-35000-00-por-conta-excesso-de-arrecadacao-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 181, DE 08 DE JUNHO DE 2020."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, ATIVIDADE, FONTE DE RECURSOS E CRÉDITO ESPECIAL NO VALOR DE R$ 35.000,00, POR CONTA EXCESSO DE ARRECADAÇÃO, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, em conformidade com o art. 9º, inciso III, da Lei Municipal nº 2.730, de 28 de outubro de 2019 e Lei Municipal nº 2.789, de 05 de junho de 2020,Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 2.730, de 28 de outubro de 2020), em favor da Unidade Prefeitura Municipal de Nova Veneza, crédito especial no valor de R$ 35.000,00 (trinta e cinco mil reais), para atender a programação abaixo discriminada:Órgão 02 Gabinete do PrefeitoUnidade 04 Manutenção do Fundo Municipal da Infância e AdolescênciaFuncional Programática: 08.243 - Assistência Social - Assistência à Criança e ao AdolescenteAtividade 2.078: Manutenção do FIAModalidade: 3.3.90.00.00.0707 (__) - Aplicações Diretas .. R$ 25.000,00Modalidade: 4.4.90.00.00.0707 (__) - Aplicações Diretas .. R$ 10.000,00TOTAL .................................................... R$ 35.000,00Art. 2º Os recursos destinados aos créditos do artigo anterior correrão por conta do excesso de arrecadação da Fonte de Recursos 707 - Transferências de Recursos do FIA, creditados na Conta Corrente Nº 21.064-1, Ag. 2357-4 do Banco do Brasil.Art. 3º Ficam autorizados os ajustes que se fizerem necessários nos anexos de metas físicas e fiscais do Plano Plurianual 2018/2021 - Lei Municipal nº 2.573/2017 e na Lei de Diretrizes Orçamentárias 2020 - Lei Municipal nº 7.712/2019, por conta das alterações constantes da presente Lei.Art. 4º Esta Lei entra em vigor na data de sua publicação.Art. 5º Revogam-se as disposições em contrário.Nova Veneza, 08 de junho de 2020ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e Registrada em 08 de junho de 2020.OSNIR ÂNGELO GHELLERESecretário de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

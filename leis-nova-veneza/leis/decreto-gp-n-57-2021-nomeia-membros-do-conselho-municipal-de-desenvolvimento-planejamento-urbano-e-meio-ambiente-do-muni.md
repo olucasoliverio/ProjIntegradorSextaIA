@@ -1,0 +1,13 @@
+# DECRETO GP Nº 57, DE 20 DE OUTUBRO DE 2021.
+
+**Tipo:** DECRETO GP Nº
+**Número:** 
+**Data:** 27/10/2021
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto-gp/2021/6/57/decreto-gp-n-57-2021-nomeia-membros-do-conselho-municipal-de-desenvolvimento-planejamento-urbano-e-meio-ambiente-do-municipio-de-nova-veneza-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO GP Nº 57, DE 20 DE OUTUBRO DE 2021. "NOMEIA MEMBROS DO CONSELHO MUNICIPAL DE DESENVOLVIMENTO, PLANEJAMENTO URBANO E MEIO AMBIENTE DO MUNICÍPIO DE NOVA VENEZA, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 1.706, de 10 de dezembro de 2004, DECRETA:Art. 1º Ficam nomeados, sem ônus para o Município, os membros do Conselho Municipal de Desenvolvimento, Planejamento Urbano e Meio Ambiente, conforme abaixo discriminados:  I - Representantes da Secretaria Municipal de Planejamento Urbano:Felipe Niehues Furlan;Carlos Luciano Savi;  II - Representante da Secretaria Municipal de Obras:Jose Luis Topanoti Ghisleri;  III - Representante da Câmara de Vereadores de Nova Veneza:João Paulo Vitali Cunico;  IV - Representante das Igrejas:Padre Gilson da Silva Pereira;  V - Representante da FUNDAVE:Juliano Mondardo Dal Molin;  VI - Representante da Associação Comercial e Industrial de Nova Veneza:Larissa Mondardo Bortolotto;  VII - Representante da CDL de Nova Veneza:Valtenir José de Mattia;  VIII - Representante dos Agricultores:Caren Savio Brunelli;  IX - Representante da Associação Cultural de Nova Veneza:Tânia Izé;  X - Representante do Conselho de Arquitetura e Urbanismo:Jose Luiz Ronconi;  XI - Representante do SINDUSCON:Elaine Lavezzo Amboni;  XII - Representante do CREA/SC:Fabio Bortoluzzi Bratti;  XIII - Representante do Sindicato das Indústrias Metalúrgicas, Mecânicas e Material Elétrico de Caravaggio (SIMEC);Rogerio Spillere;  XIV - Representante do Setor Jurídico:Bruno Colombo Boaroli.Art. 2º As nomeações não acarretarão ônus aos cofres públicos.Art. 3º Este Decreto entra em vigor na data de sua publicação.Art. 4º Revogam-se as disposições em contrário, em especial o Decreto Municipal nº 026, de 05 de maio de 2021.Nova Veneza, SC, 20 de outubro de 2021.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 20 de outubro de 2021.  1. OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e FinançasFELIPE NIEHUES FURLANSecretário Municipal de Planejamento e Urbanismo
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

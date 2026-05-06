@@ -1,0 +1,13 @@
+# DECRETO Nº 400, DE 29 DE JULHO DE 2019.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 14/08/2019
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2019/40/400/decreto-n-400-2019-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-do-fundo-municipal-de-assistencia-social-credito-suplementar-no-valor-de-r-70000-00-por-conta-da-transposicao-de-recursos-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 400, DE 29 DE JULHO DE 2019."ABRE, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DO FUNDO MUNICIPAL DE ASSISTÊNCIA SOCIAL, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 70.000,00, POR CONTA DA TRANSPOSIÇÃO DE RECURSOS, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, em conformidade com o art. 9º, inciso III, da Lei Municipal nº 2.656, de 14 de novembro de 2018, e da Lei Municipal 2.703, de 26 de julho de 2019,Art. 1º Fica aberto, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 2.656, de 14 de novembro de 2018), em favor do Fundo Municipal de Assistência Social, crédito suplementar no valor de R$ 70.000,00 (setenta mil reais), para atender a programação abaixo discriminada:Órgão 14: SECRETARIA DE ASSISTÊNCIA SOCIAL Unidade 01: Secretaria de Assistência Social Proj./Ativ. 2.034: Manutenção dos Programas de Atenção Social Básica Aplicação: 3.3.90.00.00.00.00.00 0701 (015) - Aplicações Diretas....R$ 70.000,00Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º decorrem da anulação parcial das seguintes dotações orçamentárias:Órgão 14: SECRETARIA DE ASSISTÊNCIA SOCIAL Unidade 01: Secretaria de Assistência Social Proj./Ativ. 1.036: Aquisição de Áreas e Construção de Moradias Aplicação: 4.4.90.00.00.00.00.00 0701 (8) - Aplicações Diretas....R$ 20.000,00Órgão 14: SECRETARIA DE ASSISTÊNCIA SOCIAL Unidade 01: Secretaria de Assistência Social Proj./Ativ. 1.038: Construção Multi. Uso, Equip. e Infraestrutura Social Aplicação: 4.4.90.00.00.00.00.00 0701 (11) - Aplicações Diretas....R$ 50.000,00TOTAL: ....R$ 70.000,00Art. 3º Este Decreto entra em vigor na data de sua publicação.Art. 4º Revogam-se as disposições em contrário.Nova Veneza, SC, 29 de julho de 2019.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 29 de julho de 2019.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,14 @@
+# LEI Nº 2.865, DE 31 DE MARÇO DE 2021.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 01/04/2021
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2021/287/2865/lei-ordinaria-n-2865-2021-altera-a-lei-municipal-n-2622-de-07-de-julho-de-2018-que-dispoe-sobre-o-conselho-municipal-de-desenvolvimento-economico-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2.865, DE 31 DE MARÇO DE 2021. "ALTERA A LEI MUNICIPAL Nº 2.622, DE 07 DE JULHO DE 2018, QUE DISPÕE SOBRE O CONSELHO MUNICIPAL DE DESENVOLVIMENTO ECONÔMICO, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º A Lei Municipal nº 2.622, de 07 de julho de 2018, que dispõe sobre o Conselho Municipal de Desenvolvimento Econômico, e dá outras providências, passa a vigorar com as seguintes alterações:  "Art. 1º - Fica criado o Conselho Municipal de Desenvolvimento Econômico, vinculado à Secretaria Municipal de Desenvolvimento Econômico, nos termos do art. 28, caput, da Lei Municipal nº 1.143, de 27 de agosto de 1993, que terá como finalidade e competência:  ...Art. 2º ...  I - seis representantes do Poder Público Municipal, sendo:  a) um representante da Secretaria Municipal de Desenvolvimento Econômico;  b) um representante da Secretaria Municipal de Planejamento e Urbanismo;  c) um representante da Secretaria Municipal de Administração e Finanças;  d) um representante do Poder Legislativo Municipal;  e) um representante do Gabinete do Prefeito Municipal;  f) um representante da Fundação do Meio Ambiente de Nova Veneza.  II - seis representantes de entidades da sociedade civil organizada, sendo:  a) um representante do Sindicato das Indústrias Metalúrgicas, Mecânicas e Material Elétrico de Caravaggio - SIMEC;  b) um representante do Sindicato dos Trabalhadores Rurais de Nova Veneza;  c) um representante da Associação Empresarial de Nova Veneza - AENOVE;  d) um representante da Associação Neoveneziana de Turismo - ANET;  e) um representante das associações de moradores do Município de Nova Veneza;  f) um representante da Câmara dos Dirigentes Lojistas - CDL de Nova Veneza.Art. 2º Esta Lei entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza, SC, 31 de março de 2021.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 31 de março de 2021.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                             Publicação oficial
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.
