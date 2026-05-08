@@ -1,0 +1,13 @@
+# DECRETO Nº 209, DE 11 DE MARÇO DE 2014.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 24/06/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2014/21/209/decreto-n-209-2014-homologa-resolucoes-do-conselho-municipal-de-saude-de-nova-veneza
+
+## Texto Completo
+
+DECRETO Nº 209, DE 11 DE MARÇO de 2014. "HOMOLOGA RESOLUÇÕES DO CONSELHO MUNICIPAL DE SAÚDE DE NOVA VENEZA".EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, usando das atribuições legais que lhes são conferidas pela Lei Orgânica do Município c/c as Leis Federais nº 8.080/90 e 8.142/90, bem como considerando a Resolução CNS - Conselho Nacional de Saúde nº 453, de 10 de maio de 2012, DECRETA:Art. 1º Ficam homologadas as resoluções do Conselho Municipal de Saúde de Nova Veneza/SC, deliberadas em reunião ordinária ocorrida em 25 de outubro de 2013, conforme abaixo discriminado:Resolução nº 12/CMS/2013 - Aprova os indicadores do SISPACTO para o ano de 2013 do Município de Nova Veneza.Art. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza/SC, 11 de março de 2014.EVANDRO LUIS GAVAPrefeito MunicipalPublicado e Registrado em 11 de março de 2014.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças---------------------------------------------DECRETO Nº 209-A, DE 11 DE ABRIL DE 2007.CONTRATA EM CARÁTER TEMPORÁRIO A SERVIDORA JUSSARA CAMARGO RIBEIRO, PARA ATUAR NA CATEGORIA FUNCIONAL DE PROFESSOR - ACT.ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, usando das atribuições legais e de conformidade com o inciso IX, artigo 53, da Lei Orgânica Municipal, Lei nº 1.306 de 20 de Agosto de 1.997, Lei nº 1.416 de 29 de Dezembro de 1.999 e Lei nº 1.700 de 11 de Novembro de 2004, DECRETA:Art. 1º Fica contratada em caráter temporário a servidora JUSSARA CAMARGO RIBEIRO para a categoria funcional de Professor - ACT MAG LP 1 - A, 20 (vinte) horas/aulas semanais, com regência de classe, na Escola Municipal Vitor Savi, por desdobramento de turma, a partir de 23 de abril de 2007.Art. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza, SC, 11 de abril de 2007.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalCIRLEI GHELLERE PAVEISecretário Municipal de EducaçãoRegistrada e publicada, em 11 de abril de 2007.OSNIR ANGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

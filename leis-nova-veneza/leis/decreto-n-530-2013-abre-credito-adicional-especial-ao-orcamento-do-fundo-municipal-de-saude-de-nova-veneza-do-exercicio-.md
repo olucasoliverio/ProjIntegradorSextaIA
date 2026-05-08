@@ -1,0 +1,13 @@
+# DECRETO Nº 530, DE 09 DE AGOSTO DE 2013.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 24/06/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2013/53/530/decreto-n-530-2013-abre-credito-adicional-especial-ao-orcamento-do-fundo-municipal-de-saude-de-nova-veneza-do-exercicio-de-2013-por-conta-de-anulacao-de-dotacao-orcamentaria-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 530, DE 09 DE AGOSTO DE 2013.ABRE CRÉDITO ADICIONAL ESPECIAL AO ORÇAMENTO DO FUNDO MUNICIPAL DE SAÚDE DE NOVA VENEZA DO EXERCÍCIO DE 2013, POR CONTA DE ANULAÇÃO DE DOTAÇÃO ORÇAMENTÁRIA E DÁ OUTRAS PROVIDÊNCIAS.EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, SC, usando das atribuições legais e em conformidade com a Lei Municipal nº 2.271, de 09 de agosto de 2013, DECRETA:Art. 1º Fica aberto crédito Adicional Especial no total de R$ 40.000,00 (Quarenta Mil Reais), no orçamento do Exercício de 2013 do Fundo Municipal de Saúde de Nova Veneza, na dotação orçamentária do elemento de despesa abaixo discriminado:  1300 - SECRETARIA DE SAÚDE1301- Secretaria da Saúde  10.301.006 - Saúde Nova Veneza  2.022 - Manutenção de Rede Municipal de Saúde  4.4.90.00.00.00.00.00.0.2.64.000064 - Aplicações Diretas......................R$ 40.000,00TOTAL.........................................................................R$ 40.000,00Art. 2º A suplementação decorrente do artigo anterior correrá por conta de anulação parcial da dotação orçamentária do elemento de despesa abaixo discriminado:  1300 - SECRETARIA DE SAÚDE1301- Secretaria da Saúde  10.301.0006 - Saúde Nova Veneza  2.022 - Manutenção de Rede Municipal de Saúde  3.3.90.00.00.00.00.00.0.2.64.000064 (12) - Aplicações Diretas.................R$ 40.000,00TOTAL ........................................................................R$ 40.000,00Art. 3º Fica ajustadas nos anexos do Plano Plurianual 2010/2013 - Lei Municipal nº 1.967/2009 de 08 de Setembro de 2009, nos anexos da Lei de Diretrizes Orçamentárias/2013 - Lei Municipal nº 2.171/2012 de 04 de Junho de 2012 e nos anexos da Lei Orçamentária Anual/2013 - Lei nº 2.217/2012 de 10 de Dezembro de 2012, que se fizerem necessários em função da abertura do Crédito Adicional Especial constante da presente Lei.Art. 4º Este decreto entra em vigor da data de sua publicação.Art. 5º Revogam-se às disposições em contrário.Nova Veneza, 09 de agosto de 2013EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 09 de agosto de 2013.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

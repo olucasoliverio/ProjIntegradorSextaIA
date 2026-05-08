@@ -1,0 +1,13 @@
+# DECRETO Nº 420, DE 26 DE ABRIL DE 2013.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 30/06/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2013/42/420/decreto-n-420-2013-nomeia-membros-para-o-conselho-municipal-de-educacao-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 420, DE 26 DE ABRIL DE 2013.NOMEIA MEMBROS PARA O CONSELHO MUNICIPAL DE EDUCAÇÃO E DÁ OUTRAS PROVIDÊNCIAS.EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, usando das atribuições legais que lhe são conferidas pela Lei Orgânica Municipal e de conformidade com a Lei nº 1.109 de 10 de novembro de 1992, alterada pela Lei nº 1.183 de 24 de junho de 1994 e art. 4º do capítulo II do Regimento Interno do Conselho Municipal de Educação, DECRETA:Art. 1º Ficam nomeados sem ônus para o Município, os membros abaixo descritos para comporem o Conselho Municipal de Educação:  I - Representantes da Secretaria Municipal de Educação:TITULAR - Carmem Lair MalgariseSUPLENTE - Neice da Silva Back  II - Representante da Câmara Municipal de Vereadores:TITULAR - Alberto RanacoskiSUPLENTE - Eloir Minatto  III - Representantes dos Professores da Rede Municipal de Ensino:TITULAR - Marlene da Silva MirandaSUPLENTE - Silvana Waterkemper Pacheco  IV - Representante da EPAGRI - Empresa de Pesquisa Agropecuária e Extensão Rural de Santa Catarina - Escritório Municipal de Nova Veneza:TITULAR - Acelir Terezinha da SilvaSUPLENTE - Paulo Roberto da Costa Nunes  V - Representante da Secretaria Municipal de Saúde:TITULAR - Alessandro MartinsSUPLENTE - Daniela Hobold  VI - Representante dos Professores da Rede Estadual de Ensino:TITULAR - Romencito José AléssioSUPLENTE - Amilcar Marini  VII - Representante das APPs - Associação de Pais e Professores:TITULAR - Cristiano AmboniSUPLENTE - Márcio Tomasi  VIII - Representante do Sindicato dos Trabalhadores Rurais de Nova Veneza:TITULAR - Lilian MondardoSUPLENTE - Evandro Boaroli  IX - Representante da Associação Feminina de Assistência Veneziana - AFAVE:TITULAR - Ticiana Damiani Destro GavaSUPLENTE - Vera SpilereArt. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário, em especial o decreto nº 220 de 27 de março de 2009.Nova Veneza, SC, 26 de abril de 2013.EVANDRO LUIS GAVAPrefeito MunicipalCARMEM LAIR MALGARISESecretária Municipal de EducaçãoPublicado e Registrado em 26 de abril de 2013.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

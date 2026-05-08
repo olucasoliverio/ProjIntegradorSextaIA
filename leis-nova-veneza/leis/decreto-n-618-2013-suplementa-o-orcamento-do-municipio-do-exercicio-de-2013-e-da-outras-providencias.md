@@ -1,0 +1,13 @@
+# DECRETO Nº 618, DE 18 DE NOVEMBRO DE 2013.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 19/06/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2013/62/618/decreto-n-618-2013-suplementa-o-orcamento-do-municipio-do-exercicio-de-2013-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 618, DE 18 DE NOVEMBRO DE 2013. "SUPLEMENTA O ORÇAMENTO DO MUNICÍPIO DO EXERCÍCIO DE 2013 E DA OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, SC, usando das atribuições legais e em conformidade com a Lei Municipal nº 2.300, de 18 de novembro de 2013, DECRETA:Art. 1º Ficam suplementados as dotações orçamentárias nas atividades abaixo discriminada, por se apresentarem insuficiente para o empenhamento de despesas, limitado ao valor total de até R$ 30.000,00 (trinta mil reais), por conta da transposição de dotações, como segue:Órgão 9: SECRETARIA DE CULTURA, ESPORTE E TURISMOAtividade 2.055 Manutenção e Incentivo a EventosModalidade de Aplicação 3.3.90.00.0100 (74) - Aplicações Diretas...........................R$ 20.000,00Órgão 15: FUNDO DE SANEAMENTO BÁSICOAtividade 2.044 Manutenção e Funcionamento do FUNSABModalidade de Aplicação 3.3.90.00.0095 (123) - Aplicações Diretas..........................R$ 10.000,00VALOR TOTAL................................................................................R$ 30.000,00Art. 2º Os recursos destinados às suplementações do artigo anterior, correrão por conta da anulação das dotações orçamentárias abaixo discriminadas:Órgão 10: SECRETARIA DE TRANSPORTES, OBRAS E SERV. URBANOSAtividade 1.040 Pavimentação de Vias, Rodovias e LogradourosModalidade de Aplicação 4.4.90.00.00.00.83 (96) - Aplicações Diretas.......................R$ 30.000,00VALOR TOTAL................................................................................R$ 30.000,00Art. 3º Ficam ajustados os anexos do Plano Plurianual 2010/2013 - Lei Municipal nº 1.967/2009 e os anexos da Lei de Diretrizes Orçamentárias/2013 - Lei Municipal nº 2.171/2012, que se fizeram necessários em função da transposição de dotações constantes do presente decreto.Art. 4º Revogando-se as disposições em contrário este decreto entra em vigor na data de sua publicação.Nova Veneza, 18 de novembro de 2013.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 18 de novembro de 2013.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

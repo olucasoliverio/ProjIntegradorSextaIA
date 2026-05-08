@@ -1,0 +1,19 @@
+# DECRETO Nº 218, DE 19 DE MARÇO DE 2014.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 26/10/2021
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2014/22/218/decreto-n-218-2014-declara-em-situacao-anormal-caracterizada-como-situacao-de-emergencia-a-area-do-municipio-afetada-por-enxurrada-cobrade-12200
+
+## Texto Completo
+
+Versão consolidada, com alterações até o dia 06/06/2014
+
+                        DECRETO Nº 218, DE 19 DE MARÇO DE 2014.(Vide prorrogação dada pelo Decreto nº 366/2014) "DECLARA EM SITUAÇÃO ANORMAL, CARACTERIZADA COMO SITUAÇÃO DE EMERGÊNCIA, A ÁREA DO MUNICÍPIO AFETADA POR ENXURRADA (COBRADE 1.2.2.0.0)."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, no uso das atribuições legais conferidas pelo art. 53, XIV, da Lei Orgânica do Município, pelo Art. 7º do Decreto Federal nº 7.257, de 04 de agosto de 2010, pela Lei Estadual nº 10.925, de 22 de setembro de 1998, pelo Decreto Estadual nº 3.924, de 11 de janeiro de 2006, pelo Art. 4º, § 3º, I da Resolução CONAMA nº 369 de 28 de março de 2006 e pela Resolução nº 3 do Conselho Nacional de Defesa Civil,Considerando:- a enxurrada provocada pelos excessos de chuva, nos dias 18 e 19 de março de 2014, atingindo parte da zona rural e urbana do Município, conforme FIDE - Formulário de Informação de Desastre, anexo ao presente decreto;- como consequências deste desastre, resultaram danos humanos, materiais, ambientais e prejuízos econômicos e sociais, DECRETA:Art. 1º Fica declarada a existência de situação anormal provocada por desastre e caracterizada como Situação de Emergência.  Parágrafo Único - Esta situação de anormalidade é válida apenas para as áreas deste Município comprovadamente afetadas pelo desastre, conforme FIDE - Formulário de Informação de Desastre.Art. 2º De acordo com o estabelecido nos incisos XI e XXV do artigo 5º da Constituição da República Federativa do Brasil de 1988, autoriza-se as autoridades administrativas e os agentes de defesa civil, diretamente responsáveis pelas ações de resposta aos desastres, em caso de risco iminente:  I - penetrar nas casas, a qualquer hora do dia ou da noite, mesmo sem o consentimento do morador, para prestar socorro ou para determinar a pronta evacuação das mesmas;  II - usar da propriedade, inclusive particular, em circunstâncias que possam provocar danos, prejuízos ou comprometer a segurança de pessoas, instalações, serviços e outros bens públicos ou particulares, assegurando-se ao proprietário indenização ulterior, caso o uso da propriedade provoque danos à mesma.Art. 3º De acordo com o estabelecido no artigo 5º do Decreto-lei nº 3.365, de 21 de junho de 1941, autoriza-se que se dê início a processos de desapropriação, por utilidade pública, de propriedades particulares comprovadamente localizadas em áreas de risco intensificado de desastres.Art. 4º De acordo com o art. 4º, § 3º, inciso I da Resolução do CONAMA nº 369, de 28 de março de 2006, independe de prévia autorização do órgão ambiental competente, as atividades de segurança pública e defesa civil, de caráter emergencial.Art. 5º Este Decreto entra em vigor na data de sua publicação, devendo viger por um prazo de 90 (noventa) dias.  Parágrafo Único - O prazo de vigência deste decreto pode ser prorrogado por igual período.Nova Veneza/SC, 19 de março de 2014.EVANDRO LUIS GAVAPrefeito MunicipalPublicado e registrado em 19 de março de 2014.CESAR AUGUSTUS BORTOLUZZISecretário de Administração e Finanças
+
+                                        Download Anexo:
+
+                                                    Decreto Nº 218/2014 - Nova Veneza-SC    
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

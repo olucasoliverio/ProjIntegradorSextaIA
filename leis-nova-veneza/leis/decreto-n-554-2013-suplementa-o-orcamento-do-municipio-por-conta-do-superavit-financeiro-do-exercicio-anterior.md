@@ -1,0 +1,13 @@
+# DECRETO Nº 554, DE 06 DE SETEMBRO DE 2013.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 24/06/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2013/56/554/decreto-n-554-2013-suplementa-o-orcamento-do-municipio-por-conta-do-superavit-financeiro-do-exercicio-anterior
+
+## Texto Completo
+
+DECRETO Nº 554, DE 06 DE SETEMBRO DE 2013.SUPLEMENTA O ORÇAMENTO DO MUNICÍPIO POR CONTA DO SUPERÁVIT FINANCEIRO DO EXERCÍCIO ANTERIOREVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, SC, usando das atribuições legais e em conformidade com a Lei Municipal nº 2.282, de 06 de setembro de 2013;Art. 1º Fica suplementado as dotações orçamentárias nas atividades abaixo discriminadas, por se apresentarem insuficientes para o empenhamento de despesas, limitado ao valor total de R$ 115.022,93 (cento e quinze mil, vinte e dois reais e noventa e três centavos), por conta do superávit financeiro do exercício anterior, como segue:Órgão 10: SECRETARIA DE TRANSP., OBRAS E SERVÍÇOS URBANOSAtividade 2.035 Manutenção da Secretaria de Obras e Serviços UrbanosModalidade de Aplicação 3.3.90.00.0.1.44(84) - Aplicações Diretas.............R$ 56.982,43Atividade 2.036 Limpeza Pública, Coleta e Destinação do LixoModalidade de Aplicação 3.3.90.00.0.1.45(93) - Aplicações Diretas.............R$ 26.780,91Atividade 2.043 Sinalização de Vias, Bens Públicos e SegurançaModalidade de Aplicação 3.3.90.00.0.1.24(108) - Aplicações Diretas............R$ 31.259,59TOTAL........................................................................R$ 115.022,93Art. 2º Os recursos destinados a abertura do crédito adicional do artigo anterior, correrão por conta do superávit financeiro apurado no exercício de 2012, correspondente ao saldo bancário na data de 31 de dezembro de 2012, como segue:  I - Do FEP, R$ 56.982,43, creditados na Conta Corrente 002.069-9, do Banco do Brasil;  II - Da CFEM, R$ 26.780,91, creditados na Conta Corrente 5.108-X, do Banco do Brasil;  III - Do Convênio SSP/Trânsito, R$ 31.259,59, creditados na Conta Corrente 25.424-X, do Banco do Brasil.Art. 3º Revogando-se as disposições em contrário, este decreto entra em vigor na data de sua publicação.Nova Veneza, 06 de setembro de 2013.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 06 de setembro de 2013.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

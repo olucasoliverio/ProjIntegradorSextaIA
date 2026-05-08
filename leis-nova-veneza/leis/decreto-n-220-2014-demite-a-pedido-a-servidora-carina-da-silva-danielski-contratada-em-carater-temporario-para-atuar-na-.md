@@ -1,0 +1,13 @@
+# DECRETO Nº 220, DE 19 DE MARÇO DE 2014.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 24/06/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2014/22/220/decreto-n-220-2014-demite-a-pedido-a-servidora-carina-da-silva-danielski-contratada-em-carater-temporario-para-atuar-na-categoria-funcional-de-agente-comunitaria-de-saude
+
+## Texto Completo
+
+DECRETO Nº 220, DE 19 DE MARÇO DE 2014.DEMITE A PEDIDO A SERVIDORA CARINA DA SILVA DANIELSKI CONTRATADA EM CARÁTER TEMPORÁRIO PARA ATUAR NA CATEGORIA FUNCIONAL DE AGENTE COMUNITÁRIA DE SAÚDE.EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, SC, usando das atribuições legais e de conformidade com o inciso IX, artigo 53, da Lei Orgânica Municipal, e Lei nº Municipal nº 1.645 de 29 de outubro de 2003, DECRETA:Art. 1º Fica demitida a servidora CARINA DA SILVA DANIELSKI contratada em caráter temporário para atuar na categoria funcional de Agente Comunitária de Saúde, conforme abaixo Decreto nº   335 de março de 2013.Art. 2º Este decreto entra em vigor na data de sua publicação, retroagindo seus efeitos a partir de 17 de março de 2014.Art. 3º Revogam-se as disposições em contrário.Nova Veneza - SC, 19 de março de 2014EVANDRO LUIS GAVAPrefeito MunicipalSANTINA IZÉ ROSASecretária Municipal de SaúdeRegistrada e publicada, em 19 de março de 2014.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças-----------------------------------------------DECRETO Nº 220-A, DE 07 DE MAIO DE 2007.  "SUBSTITUI MEMBRO DA COMISSÃO PERMANENTE DE LICITAÇÕES E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, usando das atribuições legais que lhe são conferidas através da Lei Orgânica Municipal c/c o art. 51 da Lei nº 8.666/93 e demais disposições pertinentes, DECRETA:Art. 1º Fica substituída a Sra. ANGÉLICA EYNG PREIS pelo Sr. LUIZ HENRIQUE BALDESSAR GAVA da Comissão Permanente de Licitações, nomeada através do Decreto 014, de 02 de janeiro de 2007.  Parágrafo Único - O membro que substitui ficará com o encargo de Presidente da Comissão Permanente de Licitações.Art. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza, SC, 07 de maio de 2007.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 07 de maio de 2007.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

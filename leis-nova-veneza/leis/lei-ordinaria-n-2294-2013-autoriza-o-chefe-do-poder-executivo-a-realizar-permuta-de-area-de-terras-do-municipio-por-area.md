@@ -1,0 +1,15 @@
+# LEI Nº 2294, DE 25 DE OUTUBRO DE 2013.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 21/09/2018
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2013/230/2294/lei-ordinaria-n-2294-2013-autoriza-o-chefe-do-poder-executivo-a-realizar-permuta-de-area-de-terras-do-municipio-por-area-de-terras-de-propriedade-da-assoaciacao-de-moradores-do-bairro-bortolotto-e-da-outras-providencias
+
+## Texto Completo
+
+Versão consolidada, com alterações até o dia 15/08/2018
+
+                        LEI Nº 2294, DE 25 DE OUTUBRO DE 2013. "AUTORIZA O CHEFE DO PODER EXECUTIVO A REALIZAR PERMUTA DE ÁREA DE TERRAS DO MUNICÍPIO POR ÁREA DE TERRAS DE PROPRIEDADE DA ASSOACIAÇÃO DE MORADORES DO BAIRRO BORTOLOTTO E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, no uso de suas atribuições legais, previstas na Lei Orgânica Municipal, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo Municipal autorizado a realizar permuta da área de terra de 3.150,00m² (três mil, cento e cinquenta metros quadrados) do terreno urbano, situado em Secção Selva, Município de Nova Veneza, Comarca de Criciúma/SC, confrontações especificadas na escritura Pública de Compra e Venda, em anexo, avaliado em R$ 600.000,00 (seiscentos mil reais) pelo imóvel de propriedade da Associação de Moradores do Bairro Bortolotto, abaixo descrito:  "Um terreno urbano, situado em Secção Selva, Município de Nova Veneza, Comarca de Criciúma/SC, com a área total de 1.800,00 m² (um mil e oitocentos metros quadrados), e confrontações especificadas na matricula sob o nº 2.351, junto ao 2º Oficio do Registro de Imóveis da Comarca de Criciúma/SC, avaliado em R$ 600.000,00 (seiscentos mil reais)."Art. 2º A área de terra supra referida, destinar-se-á a edificação de uma quadra coberta com vestiário, padrão FNDE, com área construída de 985,56 m² e dimensão de projeção da cobertura; 26,73m x 38,20m.Art. 3º Fazem parte integrante da presente Lei, os documentos comprobatórios compostos através de cópia das matriculas dos imóveis nas quais encontram-se inseridas as áreas acima descritas, cópia dos termos de avaliação emitidas pela Comissão de Avaliação Permanente de Bens Móveis e Imóveis, ata da associação de moradores do Bairro Bortolotto que aprovou a realização da permuta e Estatuto Social da Associação, bem como mapa de localização e memorial descritivo, das duas áreas.  Parágrafo único. Fica o Poder Executivo autorizado a custear todas as despesas relacionadas à lavratura da escritura pública e ao registro da permuta de que trata o caput do art. 1º. (Redação acrescida pela Lei nº 2639/2018)Art. 4º Esta Lei entra em vigor na data de sua publicação.Art. 5º Revogam-se as disposições em contrario.Nova Veneza/SC, 25 de outubro de 2013.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 25 de outubro de 2013.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

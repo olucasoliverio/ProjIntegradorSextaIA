@@ -1,0 +1,13 @@
+# LEI Nº 2297, DE 1º DE NOVEMBRO DE 2013.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 16/04/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2013/230/2297/lei-ordinaria-n-2297-2013-autoriza-o-ingresso-do-municipio-de-nova-veneza-no-consorcio-de-informatica-na-gestao-publica-municipal-ciga-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2297, DE 1º DE NOVEMBRO DE 2013. "AUTORIZA O INGRESSO DO MUNICÍPIO DE NOVA VENEZA NO CONSÓRCIO DE INFORMÁTICA NA GESTÃO PÚBLICA MUNICIPAL - CIGA, E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, faz saber a todos, que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica autorizado o ingresso do Município de Nova Veneza no Consórcio de Informática na Gestão Pública Municipal - CIGA, nos termos do contrato de consórcio público, parte integrante da presente Lei.Art. 2º Para o cumprimento das despesas decorrentes do contrato de rateio do CIGA, fica o Chefe do Poder Executivo Municipal autorizado a abrir crédito especial com inserção de modalidade de aplicação, conforme abaixo discriminado, destinado ao empenhamento de despesas correntes e de capital, vinculação 0100 - Recursos Próprios, não previstas na Lei Orçamentária do exercício em curso, no valor total de R$ 2.520,00 (dois mil, quinhentos e vinte reais).Órgão 06: Secretaria de Administração e FinançasProj./Ativ. 2.006: Manutenção dos Serviços AdministrativosModalidade de Aplicação: 3.3.71.00.0100(__) - Transf. à Consórcios Públicos.................R$ 2.520,00TOTAL.......................................................................................R$ 2.520,00Art. 3º Os recursos destinados a abertura do crédito especial de que trata o artigo anterior, correrão por conta da anulação dos seguintes créditos orçamentários do exercício em curso.Órgão 06: Secretaria de Administração e FinançasProj./Ativ. 2.006: Manutenção dos Serviços AdministrativosModalidade de Aplicação: 3.3.90.00.0100(17) - Aplicações Diretas............................R$ 2.520,00TOTAL.......................................................................................R$ 2.520,00Art. 4º Esta Lei entra em vigor na data de sua publicação.Art. 5º Revogam-se as disposições em contrárioNova Veneza, 1º de novembro de 2013.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 1º de novembro de 2013.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

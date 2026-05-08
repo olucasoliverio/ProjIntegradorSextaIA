@@ -1,0 +1,13 @@
+# LEI Nº 2226, DE 22 DE MARÇO DE 2013.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 16/04/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2013/223/2226/lei-ordinaria-n-2226-2013-criacao-de-novo-perimetro-urbano-no-municipio-de-nova-veneza-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2226, DE 22 DE MARÇO DE 2013. "CRIAÇÃO DE NOVO PERÍMETRO URBANO NO MUNICÍPIO DE NOVA VENEZA, E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, no uso de suas atribuições legais previstas na Lei Orgânica Municipal, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º O chefe do Poder Executivo Municipal fica autorizado a criar novo perímetro urbano no Município de Nova Veneza que passará a ter a seguinte descrição:Inicia-se a descrição deste perímetro no vértice M02, situado no limite com Nélio Furlan e Antônio Furlan, deste, segue com azimute de 180º37`48" e distância de 259,28 m., confrontando neste trecho com ANTÔNIO FURLAN, até o vértice M03, deste, segue pelo eixo da Rodovia Domênico Mondardo com uma distância de 357,65 m., até o vértice M04, deste, segue com azimute de 180º17`37" e distância de 625,00 m., confrontando neste trecho com Antônio Furlan até o vértice MOS, deste, segue com azimute de 272º38`43" e distância de 917,78 m., confrontando neste trecho com Milton Mondardo Filho, até o vértice M06, deste, segue com azimute de 359º51`47" e distância de 38,78 m., confrontando neste trecho com Milton Mondardo Filho até o vértice M07, deste, segue pelo eixo da Rodovia Domênico Mondardo com uma distância de 734,60 m até o vértice MOS, deste, segue com azimute de 333º33`22" e distância de 140,86 m., confrontando neste trecho com Gelmino Gava até o vértice M09, deste, segue com azimute de 358º58`59" e distância de 286,14 m., confrontando neste trecho com Gelmino Gava, até o vértice MOI, deste, segue com azimute de 89º30`36" e distância de 584,84 rn., confrontando neste trecho com Francisco Carlos Camargo e Nélio Furlan até o vértice M02, ponto inicial da descrição deste perímetro.Art. 2º Esta Lei entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza/SC, 22 de março de 2013.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 22 de março de 2013.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

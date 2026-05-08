@@ -1,0 +1,13 @@
+# DECRETO Nº 167, DE 04 DE FEVEREIRO DE 2013
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 24/06/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2013/17/167/decreto-n-167-2013-nomeia-atraves-de-processo-seletivo-publico-a-servidora-carolina-sachet-schabbach-para-a-categoria-funcional-de-agente-comunitaria-de-saude
+
+## Texto Completo
+
+DECRETO Nº 167, DE 04 DE FEVEREIRO DE 2013NOMEIA ATRAVÉS DE PROCESSO SELETIVO PÚBLICO A SERVIDORA CAROLINA SACHET SCHABBACH PARA A CATEGORIA FUNCIONAL DE AGENTE COMUNITÁRIA DE SAÚDEEVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, usando das atribuições legais e de conformidade com Lei 1.228, de 09 de novembro de 1995, Lei 1.645 de 29 de outubro de 2003, Lei 1.830 de 26 de junho de 2007 e Edital de Processo Seletivo Público 001/2012, DECRETA:Art. 1º Fica nomeada através de Processo Seletivo Público a servidora CAROLINA SACHET SCHABBACH para a categoria funcional de Agente Comunitária de Saúde, 40 (quarenta) horas semanais, amplitude de referência 04 a 11, no Distrito de Nossa Senhora de Caravaggio, em substituição a Carla Minato Aléssio a partir de 04 de fevereiro de 2013.Art. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza - SC, 04 de fevereiro de 2013.EVANDRO LUIS GAVAPrefeito MunicipalSANTINA IZE ROSASecretária Municipal de SaúdeRegistrada e publicada, em 04 de fevereiro de 2013.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças------------------------------------------------DECRETO Nº 167 DE 18 DE FEVEREIRO DE 2014.CONTRATA EM CARÁTER TEMPORÁRIO A SERVIDORA GLAUCIA GONÇÁLVES FRASSETO VITALLI PARA ATUAR NA CATEGORIA FUNCIONAL DE PROFESSOR ACT.SÉRGIO ALBERTO SPILERE, Prefeito Municipal em Exercicio de Nova Veneza, SC, usando das atribuições legais e de conformidade com o inciso IX, artigo 53, da Lei Orgânica Municipal e Lei nº 1.416 de 29 de Dezembro de 1.999, DECRETA:Art. 1º Fica contratada em caráter temporário a servidora GLAUCIA GONÇÁLVES FRASSETO VITALLI, para atuar na categoria funcional de Professor ACT - MAG LP - 1 - A, 40 (quarenta) horas/aulas semanais, sem regência de classe, no Centro Educacional Bairro Bortolotto.Art. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza - SC, 18 de fevereiro de 2014.SÉRGIO ALBERTO SPILEREPrefeito Municipal em ExercicioCARMEN LAIR MALGARISESecretária Municipal de EducaçãoRegistrada e publicada, em 18 de fevereiro de 2014.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,13 @@
+# LEI Nº 2235, DE 19 DE ABRIL DE 2013.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 16/04/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2013/224/2235/lei-ordinaria-n-2235-2013-autoriza-o-chefe-do-poder-executivo-a-contratar-servidores-em-carater-temporario-para-atendimento-da-secretaria-municipal-de-educacao-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2235, DE 19 DE ABRIL DE 2013. "AUTORIZA O CHEFE DO PODER EXECUTIVO A CONTRATAR SERVIDORES EM CARÁTER TEMPORÁRIO PARA ATENDIMENTO DA SECRETARIA MUNICIPAL DE EDUCAÇÃO, E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo Municipal autorizado a contratar servidores em caráter temporário, nos termos do art. 37, IX, da Constituição Federal, e Lei Orgânica do Município, para atendimento de programas específicos da Secretaria Municipal de Educação, conforme especificado abaixo: ___________________________________________________________________________________________________________________|Nº de Vagas|Categoria Funcional|               Nível de Referência                |          Carga Horária         ||===========|===================|==================================================|================================||06         |Professor          |MAG ST 1-A/MAGLP 1-A 70% MAGLP 1-A ou Ensino Médio|10. 20 - 30 ou 40 horas semanais||___________|___________________|__________________________________________________|________________________________|expandir tabela  § 1º A vigência do contrato para o(a) servidor(a) a ser contratado(a) para o cargo criado nesta lei limita-se a 31 de dezembro de 2013.  § 2º A carga horária será de 10, 20, 30 ou 40 horas semanais para aquele(a) servidor(a) contratado(a) temporariamente, conforme calendário escolar estabelecido pela Secretaria Municipal de Educação.Art. 2º Os servidores contratados temporariamente ficam sujeitos ao Estatuto dos Servidores Municipais, para efeito de vínculo empregatício e ao Regime Geral da Previdência Social para efeito da legislação previdenciária.Art. 3º As despesas decorrentes desta lei correrão por conta de dotações próprias do orçamento municipal do exercício em curso.Art. 4º Esta lei entra em vigor na data de sua publicação.Art. 5º Revogam-se as disposições em contrário.Nova Veneza, SC, 19 de abril de 2013.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 19 de abril de 2013.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

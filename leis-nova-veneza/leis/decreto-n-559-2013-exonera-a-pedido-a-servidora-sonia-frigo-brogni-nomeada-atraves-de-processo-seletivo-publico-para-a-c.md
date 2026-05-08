@@ -1,0 +1,13 @@
+# DECRETO Nº 559, DE 06 DE SETEMBRO DE 2013.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 24/06/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2013/56/559/decreto-n-559-2013-exonera-a-pedido-a-servidora-sonia-frigo-brogni-nomeada-atraves-de-processo-seletivo-publico-para-a-categoria-funcional-de-agente-comunitaria-de-saude
+
+## Texto Completo
+
+DECRETO Nº 559, DE 06 DE SETEMBRO DE 2013.EXONERA A PEDIDO A SERVIDORA, SONIA FRIGO BROGNI NOMEADA ATRAVÉS DE PROCESSO SELETIVO PÚBLICO PARA A CATEGORIA FUNCIONAL DE AGENTE COMUNITÁRIA DE SAÚDE.EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza - SC, usando das atribuições legais e de conformidade com o inciso IX, artigo 53, da Lei Orgânica Municipal e Lei nº 1.830 de 26 de junho de 2007. DECRETA: Art. 1º Fica exonerada a pedido a servidora SONIA FRIGO BROGNI brasileira, maior, nomeada para a categoria funcional de Agente Comunitária de Saúde, 40 (quarenta) horas semanais, amplitude de referencia 04 a 11, na Unidade Sanitária de Centro, conforme Decreto nº 250 de 02 de abril de 2012, a partir de 02 de setembro de 2013.Art. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza - SC, 06 de setembro de 2013.EVANDRO LUIS GAVAPrefeito MunicipalSANTINA IZÉ ROSASecretaria Municipal de SaúdeRegistrada e publicada, em 06 de setembro de 2013CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

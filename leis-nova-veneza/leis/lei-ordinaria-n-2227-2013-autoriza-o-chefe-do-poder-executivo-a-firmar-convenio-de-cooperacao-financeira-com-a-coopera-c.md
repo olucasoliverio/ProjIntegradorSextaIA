@@ -1,0 +1,15 @@
+# LEI Nº 2227, DE 22 DE MARÇO DE 2013.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 26/01/2016
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2013/223/2227/lei-ordinaria-n-2227-2013-autoriza-o-chefe-do-poder-executivo-a-firmar-convenio-de-cooperacao-financeira-com-a-coopera-cooperativa-pioneira-de-eletrificacao-visando-a-pavimentacao-urbana-da-rua-jacomo-milanez
+
+## Texto Completo
+
+Versão consolidada, com alterações até o dia 29/10/2015
+
+                        LEI Nº 2227, DE 22 DE MARÇO DE 2013. "AUTORIZA O CHEFE DO PODER EXECUTIVO A FIRMAR CONVÊNIO DE COOPERAÇÃO FINANCEIRA COM A COOPERA - COOPERATIVA PIONEIRA DE ELETRIFICAÇÃO, VISANDO A PAVIMENTAÇÃO URBANA DA RUA JÁCOMO MILANEZ ."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, faz saber a todos os habitantes do Município que a Câmara Municipal de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo autorizado a firmar convênio de cooperação financeira com a COOPERA - Cooperativa Pioneira de Eletrificação, visando a terraplanagem, pavimentação urbana com asfalto, drenagem e obras de arte corrente, sinalização, meio fio e calçada numa extensão de 479,80 metros e com largura de 15 metros da Rua Jácomo Milanez, localizada no Distrito Industrial de Caravaggio, no Município de Nova Veneza (conforme minuta de convênio em anexo).Art. 1º Fica o Chefe do Poder Executivo autorizado a firmar convênio de cooperação financeira com a COOPERA - Cooperativa Pioneira de Eletrificação, visando a terraplanagem, pavimentação urbana com asfalto, drenagem e obras de arte corrente, sinalização, meio fio e calçada numa extensão de 282 (duzentos e oitenta e dois) metros e com largura de 15 (quinze) metros da Rua Jácomo Milanez, localizada no Distrito Industrial de Caravaggio, no Município de Nova Veneza. (Redação dada pela Lei nº 2246/2013)Art. 2º Para a consecução dos objetivos do convênio a ser firmado, fica o Município autorizado a receber da COOPERA - Cooperativa Pioneira de Eletrificação, após a publicação do termo de convênio no jornal de circulação local, o valor de R$ 305.000,00 (trezentos e cinco mil reais).Art. 2º-A  Após a finalização das obras que tratam o artigo 1ª, havendo sobras de recursos, com concordância da COOPERA - Cooperativa Pioneira de Eletrificação através de convênio, poderá os mesmos ser utilizados para outros fins previamente especificados no termo a ser confeccionado entre convenente e conveniado. (Redação acrescida pela Lei nº 2488/2015)Art. 3º Esta lei entra em vigor na data de sua publicação.Art. 4º Revogam-se as disposições em contrário.Nova Veneza, SC, 22 de março de 2013.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 22 de março de 2013.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças O anexo encontra-se disponível, ainda, no Paço Municipal
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

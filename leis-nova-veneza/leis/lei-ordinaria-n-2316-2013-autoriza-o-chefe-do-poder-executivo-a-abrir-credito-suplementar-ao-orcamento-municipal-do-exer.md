@@ -1,0 +1,13 @@
+# LEI Nº 2316, DE 06 DE DEZEMBRO DE 2013
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 16/04/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2013/232/2316/lei-ordinaria-n-2316-2013-autoriza-o-chefe-do-poder-executivo-a-abrir-credito-suplementar-ao-orcamento-municipal-do-exercicio-de-2013-por-conta-do-excesso-de-arrecadacao-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2316, DE 06 DE DEZEMBRO DE 2013 "AUTORIZA O CHEFE DO PODER EXECUTIVO A ABRIR CRÉDITO SUPLEMENTAR AO ORÇAMENTO MUNICIPAL DO EXERCÍCIO DE 2013 POR CONTA DO EXCESSO DE ARRECADAÇÃO E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, faço saber que a Câmara de Vereadores aprovou e eu sanciono a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo Municipal autorizado a abrir crédito suplementar, conforme abaixo discriminado, destinado ao empenhamento de despesas de capital, no valor total de R$ 470.000,00 (quatrocentos e setenta mil reais), como segue:Órgão 08: SECRETÁRIA DE AGRICULTURAProjeto 1.047: Aquisição de Máquinas, Veículos e EquipamentosModalidade de Aplicação: 4.4.90.00.00.0.1.94(53) - Aplicações Diretas.....................R$ 390.000,00Modalidade de Aplicação: 4.4.90.00.00.0.1.00(55) - Aplicações Diretas......................R$ 80.000,00TOTAL.....................................................................................R$ 470.000,00Art. 2º Os recursos para suprir o Crédito Suplementar de que trata o artigo anterior, correrão por conta dos seguintes créditos orçamentários:  I - Por conta da arrecadação do Contrato de Repasse nº 763081/2013/MAPA/Caixa, no valor de R$ 390.000,00 (trezentos e noventa mil reais), a serem creditados em conta vinculada na Caixa Econômica Federal.  II - Por conta do excesso de arrecadação de recursos próprios, conforme tendência do exercício, no valor de R$ 80.000,00 (oitenta mil reais)  Parágrafo Único - As despesas de que trata a presente Lei ficam condicionadas e limitadas ao efetivo ingresso dos valores na conta bancária do Convênio.Art. 3º Revogadas as disposições em contrário, esta Lei entra em vigor na data de sua publicação.Nova Veneza, 06 de dezembro de 2013.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 06 de dezembro de 2013.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

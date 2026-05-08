@@ -1,0 +1,13 @@
+# LEI Nº 2304, DE 22 DE NOVEMBRO DE 2013.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 16/04/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2013/231/2304/lei-ordinaria-n-2304-2013-autoriza-o-chefe-do-poder-executivo-a-suplementar-o-orcamento-do-municipio-do-exercicio-de-2013-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2304, DE 22 DE NOVEMBRO DE 2013. "AUTORIZA O CHEFE DO PODER EXECUTIVO A SUPLEMENTAR O ORÇAMENTO DO MUNICÍPIO DO EXERCÍCIO DE 2013 E DA OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, no uso de suas atribuições legais previstas na Lei Orgânica Municipal, apresenta para apreciação da Câmara de Vereadores o seguinte:Art. 1º Fica o Chefe do Poder Executivo Municipal autorizado a suplementar a dotação orçamentária na atividade abaixo discriminada, por se apresentarem insuficiente para o empenhamento de despesas, limitado ao valor total de até R$ 15.000,00 (quinze mil reais), por conta da transposição de dotações, como segue:Órgão 9: SECRETARIA DE CULTURA, ESPORTE E TURISMOAtividade 2.055 Manutenção e Incentivo a EventosModalidade de Aplicação 3.3.90.00.0100 (74) - Aplicações Diretas...........................R$ 15.000,00VALOR TOTAL................................................................................R$ 15.000,00Art. 2º Os recursos destinados às suplementações do artigo anterior, correrão por conta da anulação das dotações orçamentárias abaixo discriminadas:Órgão 9: SECRETARIA DE CULTURA, ESPORTE E TURISMOAtividade 2.055 Manutenção e Incentivo a EventosModalidade de Aplicação 3.3.90.00.0095 (73) - Aplicações Diretas...........................R$ 15.000,00VALOR TOTAL................................................................................R$ 15.000,00Art. 3º Ficam autorizados os ajustes necessários nos anexos do Plano Plurianual 2010/2013 - Lei Municipal nº 1.967/2009 e nos anexos da Lei de Diretrizes Orçamentárias/2013 - Lei Municipal nº 2.171/2012, que se fizerem necessários em função da transposição de dotações constantes da presente Lei.Art. 4º Revogando-se as disposições em contrário esta Lei entra em vigor na data de sua publicação.Nova Veneza, 22 de novembro de 2013.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 22 de novembro de 2013.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

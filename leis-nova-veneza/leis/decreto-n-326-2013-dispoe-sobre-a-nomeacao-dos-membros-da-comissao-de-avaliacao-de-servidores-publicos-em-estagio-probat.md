@@ -1,0 +1,15 @@
+# DECRETO Nº 326, DE 14 DE MARÇO DE 2013.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 26/10/2021
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2013/33/326/decreto-n-326-2013-dispoe-sobre-a-nomeacao-dos-membros-da-comissao-de-avaliacao-de-servidores-publicos-em-estagio-probatorio
+
+## Texto Completo
+
+Versão consolidada, com alterações até o dia 03/07/2017
+
+                        DECRETO Nº 326, DE 14 DE MARÇO DE 2013.(Revogado pelo Decreto nº 359/2017) "DISPÕE SOBRE A NOMEAÇÃO DOS MEMBROS DA COMISSÃO DE AVALIAÇÃO DE SERVIDORES PÚBLICOS EM ESTÁGIO PROBATÓRIO."EVANDRO LUÍS GAVA, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais e de conformidade com § 4º, do art. 6º, da Emenda Constitucional nº 19, de 04 de junho de 1998 e demais legislação vigente, DECRETA:Art. 1º Ficam nomeados os membros abaixo, para integrar a Comissão Especial de Avaliação de Servidores em Estágio Probatório, a qual é formada por 05 (cinco) servidores como membros efetivos e 03 (três) como suplentes, para preparar, executar e julgar a avaliação de desempenho dos servidores em estágio probatório do Poder Executivo do Município.Efetivos:  1. Neice da Silva Back, ocupante do cargo de Professora MAGLP4-C;  2. Cleiva Beatriz Zanelato Lavezzo, ocupante do cargo de Fiscal de Tributos;  3. José Carlos Policarpi, ocupante do cargo de Contador.  4. Lucimara Terezinha Romagna, ocupante do cargo de Assistente Social.  5. Felipe Niehues Furlan, ocupante do cargo de Fiscal de Obras e Posturas.Suplentes:  1. Carmen Lair Malgarise, ocupante do cargo de Professor MAG LP 4-A;  2. Lisiane Mondardo dos Santos, ocupante do cargo de Agente Administrativo II;  3. Lorete Gava Zilli, ocupante do cargo de Professor MAG LP 4-C.  § 1º A Presidência desta comissão ficará sob a responsabilidade do primeiro membro.Art. 4º A Comissão ora constituída seguirá as normas do decreto nº 150 de 03 de março de 2003, que baixou instruções especiais sobre a avaliação de desempenho de servidor em estágio probatório, c/c a Lei Complementar nº 1 de 03 de abril de 2012. e as disposições legais em vigor, tomando as providências necessárias a sua fiel execução e julgamento.Art. 5º O chefe do Poder Executivo poderá contratar empresa especializada na área para assessorar a comissão formada por este decreto para a elaboração, execução e julgamento da referida avaliação, correndo as despesas a conta das dotações próprias do orçamento do município.Art. 6º Este decreto entra em vigor na data de sua publicação.Art. 7º Revogam-se as disposições em contrário, em especial o Decreto nº 375, de 19 de setembro de 2007.Nova Veneza, SC, 14 de março de 2013.EVANDRO LUIS GAVAPrefeito MunicipalCARMEN LAIR MALGARISESecretária Municipal de EducaçãoPublicada e Registrada em 14 de março de 2013.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

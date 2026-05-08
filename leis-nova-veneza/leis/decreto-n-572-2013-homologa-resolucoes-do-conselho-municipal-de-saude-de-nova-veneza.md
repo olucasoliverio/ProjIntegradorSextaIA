@@ -1,0 +1,13 @@
+# DECRETO Nº 572, DE 17 DE SETEMBRO DE2013.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 19/06/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2013/58/572/decreto-n-572-2013-homologa-resolucoes-do-conselho-municipal-de-saude-de-nova-veneza
+
+## Texto Completo
+
+DECRETO Nº 572, DE 17 DE SETEMBRO DE2013. "HOMOLOGA RESOLUÇÕES DO CONSELHO MUNICIPAL DE SAÚDE DE NOVA VENEZA".EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, usando das atribuições legais que lhes são conferidas pela Lei Orgânica do Município c/c as Leis Federais nº 8.080/90 e 8.142/90, bem como considerando a Resolução CNS - Conselho Nacional de Saúde nº 453, de 10 de maio de 2012, DECRETA:Art. 1º Ficam homologadas as resoluções do Conselho Municipal de Saúde de Nova Veneza/SC, deliberadas em reunião ordinária ocorrida em 26 de julho de 2013, conforme abaixo discriminado:Resolução nº 6/CMS/2013 - APROVA, Emenda Parlamentar nº 15.040 do Deputado Federal Ronaldo Benedet, no valor de R$ 200.000,00 (duzentos mil reais), tendo como beneficiário a Associação Beneditina da Providência - Hospital São Marcos, para a aquisição de equipamentos e materiais permanentes;Resolução nº 7/CMS/2013 - APROVA, adesão dos estabelecimentos de atenção a saúde de São Francisco do Rio Morto (ESF São Francisco) e Catarina Feltrim Spilere (ESF Caravaggio) ao programa mais médicos do Governo Federal;Resolução nº 8/CMS/2013 - APROVA, aquisição de dois veículos zero km, com recursos do cofinanciamento da atenção básica, para serem utilizados nas estratégias de saúde da família;Resolução nº 9/CMS/2013 - APROVA, aquisição de uma moto zero km, com recursos do cofinanciamento da atenção básica, para ser utilizado no programa da dengue e na dispensação de medicamentos;Resolução nº 10/CMS/2013 - APROVA, utilização de recursos do Programa Nacional de Melhoria do Acesso e da Qualidade da Atenção Básica (PMAQ-AB), para a aquisição de materiais permanentes e de consumo a serem utilizados nos estabelecimentos de atenção a saúde do Município;Resolução nº 11/CMS/2013 - APROVA, a Programação Anual de Saúde (PAS), para o ano de 2013.Art. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza/SC, 17 de setembro de 2013.EVANDRO LUIS GAVAPrefeito MunicipalPublicado e Registrado em 17 de setembro de 2013.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

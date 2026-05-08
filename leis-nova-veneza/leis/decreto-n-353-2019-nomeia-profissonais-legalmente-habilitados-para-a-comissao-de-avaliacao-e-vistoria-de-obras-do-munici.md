@@ -1,0 +1,13 @@
+# DECRETO Nº 353, DE 03 DE JUNHO DE 2019.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 14/08/2019
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2019/36/353/decreto-n-353-2019-nomeia-profissonais-legalmente-habilitados-para-a-comissao-de-avaliacao-e-vistoria-de-obras-do-municipio-de-nova-veneza-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 353, DE 03 DE JUNHO DE 2019. "NOMEIA PROFISSONAIS LEGALMENTE HABILITADOS PARA A COMISSÃO DE AVALIAÇÃO E VISTORIA DE OBRAS DO MUNICÍPIO DE NOVA VENEZA, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 162, caput, da Lei Municipal nº 1.707, de 10 de dezembro de 2004 (Código de Obras), DECRETA:Art. 1º Ficam nomeados para a Comissão de Avaliação e Vistoria de Obras do Município de Nova Veneza, nos termos do art. 162, caput, da Lei Municipal nº 1.707, de 10 de dezembro de 2004 (Código de Obras), os seguintes profissionais da área de Engenharia:  I - Edvar Minatto (CREA/SC 022894-8);  II - Galdino Gava (CREA/SC 007695-2);  III - Ricardo Brogni (CREA/SC 067445-4).Art. 2º A Presidência da Comissão de Avaliação e Vistoria de Obras ficará sob a responsabilidade do Engenheiro Civil e Eletricista Edvar Minatto (CREA/SC 022894-8).Art. 3º A Comissão de que trata o art. 1º é responsável pela avaliação e vistoria de obras no Município de Nova Veneza, SC, nos termos das atribuições prescritas na Lei Municipal nº 1.707, de 10 de dezembro de 2004 (Código de Obras).  Parágrafo único. No desempenho de suas atribuições, a Comissão deverá observar os procedimentos previstos em lei, em especial o art. 161 e seguintes, da Lei Municipal nº 1.707, de 10 de dezembro de 2004 (Código de Obras).Art. 4º Ressalvadas as exceções legais, estas nomeações não acarretarão ônus aos cofres públicos.  Parágrafo único. Eventual diligência ou informação que não seja da área dos integrantes da Comissão, poderá ser complementada por profissional da área competente, dentro ou fora dos quadros de servidores, autorizando inclusive, a contratação se for o caso.Art. 5º Este Decreto entra em vigor na data de sua publicação, revogando-se as disposições em contrário.Nova Veneza, SC, 03 de junho de 2019.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e registrado em 03 de junho de 2019.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.
