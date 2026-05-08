@@ -1,0 +1,15 @@
+# DECRETO Nº 417, DE 03 DE DEZEMBRO DE 2018.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 19/10/2018
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2018/42/417/decreto-n-417-2018-termino-de-contrato-temporario-de-servidores-da-secretaria-municipal-de-educacao-contratados-na-categoria-funcional-auxiliar-de-servicos-gerais-i
+
+## Texto Completo
+
+Versão consolidada, com alterações até o dia 01/12/2020
+
+                        DECRETO Nº 417, DE 03 DE DEZEMBRO DE 2018.Termino de contrato temporário de Servidores da Secretaria Municipal de Educação, contratados na categoria funcional Auxiliar de Serviços Gerais I.ELOIR MINATTO, Prefeito Municipal em Exercício de Nova Veneza, SC, usando das atribuições legais e de conformidade com o inciso IX, artigo 53, da Lei Orgânica Municipal, Leis Complementares 001 e 002 de 03 de abril de 2012, DECRETA:Art. 1º Ficam demitidos por Término de Contrato Temporário os servidores contratados na categoria funcional de Auxiliar de Serviços Gerais I, conforme abaixo discriminado, a partir de 07 de dezembro de 2018: ______________________________________________________________________________|               Nome              |      Cargo      |     Decreto admissão     ||=================================|=================|==========================||Ana Flavia Bonassa de Souza      |Aux. Serv. Gerais|Decreto    nº    367,   de||                                 |I                |19/10/2018                ||---------------------------------|-----------------|--------------------------||Claudete Buss                    |Aux. Serv. Gerais|Decreto    nº    088,   de||                                 |I                |14/02/2018                ||---------------------------------|-----------------|--------------------------||Raquel Oliveira de Souza         |Aux. Serv. Gerais|Decreto    nº    274,   de||                                 |I                |10/07/2018                ||---------------------------------|-----------------|--------------------------||Sinclair Colombo                 |                 |                          | (Redação dada pelo Decreto nº 302/2020)|Sinclair Peruchi                 |Aux. Serv. Gerais|Decreto    nº    087,   de||                                 |I                |14/02/2018                ||---------------------------------|-----------------|--------------------------||Tamiris Felisberto Vieira        |Aux. Serv. Gerais|Decreto    nº    084,   de||                                 |I                |14/02/2018                ||_________________________________|_________________|__________________________|expandir tabelaArt. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza/SC, de 03 de dezembro de 2018.ELOIR MINATTOPrefeito Municipal em ExercícioRegistrada e publicada, em 03 de dezembro de 2018.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

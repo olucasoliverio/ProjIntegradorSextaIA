@@ -1,0 +1,13 @@
+# DECRETO Nº 332, DE 13 DE MAIO DE 2019.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 14/06/2019
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2019/34/332/decreto-n-332-2019-regulamenta-os-artigos-4-e-6-da-lei-municipal-n-2467-de-02-de-julho-de-2015-que-institui-o-programa-de-incentivo-ao-desenvolvimento-da-qualidade-dos-servicos-de-atencao-basica-pmaq-ab-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 332, DE 13 DE MAIO DE 2019. "REGULAMENTA OS ARTIGOS 4º E 6º DA LEI MUNICIPAL Nº 2.467, DE 02 DE JULHO DE 2015, QUE INSTITUI O PROGRAMA DE INCENTIVO AO DESENVOLVIMENTO DA QUALIDADE DOS SERVIÇOS DE ATENÇÃO BÁSICA - PMAQ-AB, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 2.467, de 02 de julho de 2015, DECRETA:Art. 1º Fazendo o Município jus ao recebimento dos valores fixados no PMAQ-AB em decorrência do preenchimento das metas previstas na Portaria Ministerial da Saúde nº 1.654/2011, o percentual aplicado, relativo ao previsto nos artigos 4º e 6º da Lei Municipal nº 2.467, de 02 de julho de 2015, por equipe, será assim distribuído:  I - ENFERMEIROS: 12,5% (doze virgula cinco por cento);  II - COORDENAÇÃO: 7,5% (sete virgula cinco por cento);  III - MÉDICOS GENERALISTA: 1% (um por cento);  IV - FARMACÊUTICOS: 1,4% (um virgula quatro por cento);  V - ODONTÓLOGOS 40 horas: 8% (oito por cento);  VI - AUXILIARES DE ODONTOLOGIA: 4,2% (quatro virgula dois por cento);  VII - AUXILIARES E TÉCNICOS DE ENFERMAGEM: 30% (trinta por cento);  VIII - AGENTES COMUNITÁRIAS DE SAÚDE: 26,5% (vinte e seis virgula cinco por cento);  IX - HIGIENIZADORAS DAS UNIDADES DO ESF: 2,6% (dois virgula seis por cento);  X - MOTORISTAS LIGADOS ÀS UNIDADES ESF: 3% (três por cento);  XI - AGENTE ADMINISTRATIVO I e II: 3,3% (três virgula três por cento);Art. 2º O prêmio PMAQ em nenhuma hipótese será incorporado ao salário do servidor, sendo a sua natureza jurídica estritamente de estimulo e de caráter temporário e precário.Art. 3º As despesas para execução deste decreto correrão por conta das dotações próprias do orçamento municipal.Art. 4º Este decreto entra em vigor na data de sua publicação.Art. 5º Revogam-se as disposições em contrário, em especial o Decreto Municipal nº 484, de 03 de novembro de 2017.Nova Veneza/SC, de 13 de maio de 2019.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalRegistrada e publicada, em 13 de maio de 2019.OSNIR ANGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,13 @@
+# LEI Nº 2.651, DE 24 DE OUTUBRO DE 2018.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 26/02/2020
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2018/266/2651/lei-ordinaria-n-2651-2018-autoriza-o-chefe-do-poder-executivo-a-abrir-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-saude-credito-suplementar-no-valor-de-r-60000-00-por-conta-da-transposicao-de-recursos-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2.651, DE 24 DE OUTUBRO DE 2018. "AUTORIZA O CHEFE DO PODER EXECUTIVO A ABRIR, AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE SAÚDE, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 60.000,00, POR CONTA DA TRANSPOSIÇÃO DE RECURSOS, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica, o Chefe do Poder Executivo Municipal, autorizado a abrir, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 2.593, de 27 de outubro de 2017), em favor da Secretaria Municipal de Saúde, crédito suplementar no valor de R$ 60.000,00 (sessenta mil reais), para atender a programação abaixo discriminada:Órgão 13: SECRETARIA DE SAÚDEUnidade 01: SECRETARIA DE SAÚDEProj./Ativ. 1.027: Const. Ampli. Unid. Aquis. Veículos e EquipamentosAplicação: 4.4.90.00.00.00.00.00 0720 (01) - Aplicações Diretas .. R$ 60.000,00TOTAL: ........................................................... R$ 60.000,00Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º decorrem da anulação parcial das seguintes dotações orçamentárias:Órgão 13: SECRETARIA DE SAÚDEUnidade 01: SECRETARIA DE SAÚDEProj./Ativ. 2.025: Transferências de RecursosAplicação: 3.3.50.00.00.00.00.00 0720 (16) - Aplicações Diretas .. R$ 60.000,00TOTAL: ........................................................... R$ 60.000,00Art. 3º Esta Lei entra em vigor na data de sua publicação.Art. 4º Revogam-se as disposições em contrário.Nova Veneza, SC, 24 de outubro de 2018.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 24 de outubro de 2018.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

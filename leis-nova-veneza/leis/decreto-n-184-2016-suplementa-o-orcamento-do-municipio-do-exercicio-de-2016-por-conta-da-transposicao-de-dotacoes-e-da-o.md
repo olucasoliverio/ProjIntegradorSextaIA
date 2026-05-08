@@ -1,0 +1,13 @@
+# DECRETO Nº 184, DE 20 DE ABRIL DE 2016.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 28/06/2016
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2016/19/184/decreto-n-184-2016-suplementa-o-orcamento-do-municipio-do-exercicio-de-2016-por-conta-da-transposicao-de-dotacoes-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 184, DE 20 DE ABRIL DE 2016. "SUPLEMENTA O ORÇAMENTO DO MUNICÍPIO DO EXERCÍCIO DE 2016 POR CONTA DA TRANSPOSIÇÃO DE DOTAÇÕES E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, no uso de suas atribuições e em conformidade com os dispositivos da Lei Municipal Nº 2511 de 20 de abril de 2016, DECRETA:Art. 1º Fica suplementada a dotação orçamentária na atividade abaixo discriminada, por se apresentarem insuficientes para o empenhamento de despesas, limitado ao valor total de até R$ 100.000,00 (cem mil reais), por conta da transposição de dotações, como segue:Órgão 14: SECRETARIA DE ASSISTÊNCIA SOCIALProjeto 2.035 manutenção do CRASModalidade de Aplicação: 3.3.90.00. 0701 (11) - Aplicações Diretas.........R$ 80.000,00Órgão 14: SECRETARIA DE ASSISTÊNCIA SOCIALProjeto 2.062 Ações de Apoio a Criança e AdolescenteModalidade de Aplicação: 3.3.90.00. 0701 (17) - Aplicações Diretas.........R$ 20.000,00VALOR TOTAL...............................................................R$ 100.000,00Art. 2º Os recursos destinados às suplementações do art. 1º correrão por conta anulação dos seguintes créditos orçamentários:Órgão 14: SECRETARIA DE ASSISTÊNCIA SOCIALAtividade 1.036 Aquisição de Áreas e Construções de MoradiasModalidade de Aplicação 4.4.90.00. 0701 (01) - Aplicações Diretas..........R$ 30.000,00Atividade 1.038 Construção Multi. Uso Equip. e Infraestrutura SocialModalidade de Aplicação 4.4.90.00. 0701 (03) - Aplicações Diretas..........R$ 30.000,00Atividade 2.037 Manutenção dos ConvêniosModalidade de Aplicação 3.3.50.00. 0701 (13) - Aplicações Diretas..........R$ 20.000,00Atividade 2.039 Manutenção dos Programas de Formação Profissional e Geração.Modalidade de Aplicação 3.3.50.00. 0701 (14) - Aplicações Diretas..........R$ 20.000,00VALOR TOTAL...............................................................R$ 100.000,00Art. 3º Revogando-se as disposições em contrário esta Lei entra em vigor na data de sua publicação.EVANDRO LUIS GAVAPrefeito MunicipalPublicado e registrado em 20 de abril de 2016.ROBERTO JOSÉ SÁVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

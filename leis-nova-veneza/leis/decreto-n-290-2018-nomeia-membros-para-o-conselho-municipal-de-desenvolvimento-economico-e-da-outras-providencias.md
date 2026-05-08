@@ -1,0 +1,15 @@
+# DECRETO Nº 290, DE 31 DE JULHO DE 2018.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 27/10/2021
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2018/29/290/decreto-n-290-2018-nomeia-membros-para-o-conselho-municipal-de-desenvolvimento-economico-e-da-outras-providencias
+
+## Texto Completo
+
+Versão consolidada, com alterações até o dia 28/10/2018
+
+                        DECRETO Nº 290, DE 31 DE JULHO DE 2018.(Revogado pelo Decreto nº 511/2018) "NOMEIA MEMBROS PARA O CONSELHO MUNICIPAL DE DESENVOLVIMENTO ECONÔMICO, E DÁ OUTRAS PROVIDÊNCIAS.".ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, em conformidade com a Lei Municipal nº 2.622, de 07 de julho de 2018, DECRETA:Art. 1º Ficam nomeados para o Conselho Municipal de Desenvolvimento Econômico, criado pela Lei Municipal nº 2.622, de 07 de julho de 2018, os seguintes membros:  I - Representantes da Secretaria Municipal de Planejamento e Urbanismo:  a) TITULAR: Lodejane Zanoni;  b) SUPLENTE: Felipe Furlan.  II - Representantes da Secretaria Municipal de Administração e Finanças:  a) TITULAR: Osnir Ângelo Ghellere;  b) SUPLENTE: Vilson Barchinski.  III - Representantes do Poder Legislativo Municipal:  a) TITULAR: Aroldo Frigo Junior;  b) SUPLENTE: Arlindo da Silva.  IV - Representantes do Gabinete do Prefeito Municipal:  a) TITULAR: Luiz Henrique Baldessar Gava;  b) SUPLENTE: Dilcionir José Ghellere.  V - Representantes da Fundação do Meio Ambiente de Nova Veneza:  a) TITULAR: Juliano Mondardo Dal Molin;  b) SUPLENTE: Marcelo Romagna Pasetto.  VI - Representantes do Sindicato das Indústrias Metalúrgicas, Mecânicas e Material Elétrico de Caravaggio - SIMEC:  a) TITULAR: Rogério Spillere;  b) SUPLENTE: Valternei Milanez.  VII - Representantes do Sindicato dos Trabalhadores Rurais de Nova Veneza:  a) TITULAR: Evandro Boaroli;  b) SUPLENTE: Claiton Zanzi.  VIII - Representantes da Associação Empresarial de Nova Veneza - AENOVE:  a) TITULAR: Guilherme Nuernberg Minatto;  b) SUPLENTE: Larissa Mondardo Bortolotto.  IX - Representantes da Associação Neoveneziana de Turismo - ANET:  a) TITULAR: Franciele Zuchinali Ghellere;  b) SUPLENTE: Rogério Bauer.  X - Representantes das associações de moradores do Município de Nova Veneza:  a) TITULAR: Ricardo Locks;  b) SUPLENTE: Margarete Ghislandi.Art. 2º As nomeações não acarretarão ônus aos cofres públicos.Art. 3º Este Decreto entra em vigor na data de sua publicação.Art. 4º Revogam-se as disposições em contrário.Nova Veneza, SC, 31 de julho de 2018.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 31 de julho de 2018.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

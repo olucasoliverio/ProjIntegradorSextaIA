@@ -1,0 +1,13 @@
+# LEI Nº 2599, DE 23 DE NOVEMBRO DE 2017.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 16/04/2018
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2017/260/2599/lei-ordinaria-n-2599-2017-estabelece-o-calendario-fiscal-para-o-exercicio-de-2018-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2599, DE 23 DE NOVEMBRO DE 2017. "ESTABELECE O CALENDÁRIO FISCAL PARA O EXERCÍCIO DE 2018, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica estabelecido o calendário fiscal do Município de Nova Veneza, para o exercício de 2018, obedecendo-se os seguintes cronogramas:  I - I.P.T.U. - IMPOSTO PREDIAL E TERRITORIAL URBANO:  a) Pagamento em cota única COM DESCONTO de 10% (dez por cento), com vencimento para o dia 16/04/2018. Os contribuintes que não possuírem débitos de IPTU nos exercícios anteriores, será concedido mais 10% (dez por cento) de desconto;  b) Pagamento em cinco (05) parcelas, SEM DESCONTO, nos seguintes vencimentos:1ª Parcela - 16/04/20182ª Parcela - 16/05/20183ª Parcela - 18/06/20184ª Parcela - 16/07/20185ª Parcela - 16/08/2018  Parágrafo único. Aplicam-se à Taxa de Coleta de Resíduos Sólidos (TCRS) os mesmos percentuais de desconto e datas de pagamento prescritos neste artigo.  II - ALVARÁ (T.V.C.P.N.U.) - TAXA DE VERIFICAÇÃO DO CUMPRIMENTO DAS POSTURAS E NORMAS URBANÍSTICAS:  a) Pagamento em cota única com 10% (dez por cento) de desconto, com vencimento no dia 28/02/2018;  b) Pagamento em três (03) parcelas, SEM DESCONTO, com vencimento nos dias 28/02/2018, 28/03/2018 e 30/04/2018.  III - I.S.S. - IMPOSTO SOBRE SERVIÇOS:  1) FIXO:  a) Pagamento em cota única com 10% (dez por cento) de Desconto, com vencimento no dia 16/04/2018;  b) Pagamento em nove (09) parcelas, SEM DESCONTO, a contar do dia 16/04/2018, com vencimento no mesmo dia nos meses subsequentes.  2) HOMOLOGADO:  a) Com vencimento no dia 10 (dez) do mês subsequente.  IV - ALVARÁ SANITÁRIO ANUAL (POR ATIVIDADE DESENVOLVIDA):  a) Pagamento em cota única com 10% (dez por cento) de desconto, com vencimento no dia 28/02/2018.  b) Pagamento em três (03) parcelas, SEM DESCONTO, com vencimento nos dias 28/02/2018, 28/03/2018 e 30/04/2018.Art. 2º Esta lei entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza, SC, 23 de novembro de 2017.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 23 de novembro de 2017.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,13 @@
+# LEI Nº 2.564, DE 14 DE JUNHO DE 2017.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 19/06/2017
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2017/257/2564/lei-ordinaria-n-2564-2017-cria-a-faixa-prefeital-como-distintivo-do-cargo-de-prefeito-do-municipio-de-nova-veneza-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2.564, DE 14 DE JUNHO DE 2017. "CRIA A FAIXA PREFEITAL, COMO DISTINTIVO DO CARGO DE PREFEITO DO MUNICÍPIO DE NOVA VENEZA, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica criada a Faixa Prefeital, como distintivo do cargo de Prefeito do Município de Nova Veneza, confeccionada em seda ou cetim, nas cores da Bandeira Municipal, ostentando o Brasão do Município.  Parágrafo único. O Prefeito usará a Faixa Prefeital, a tiracolo, da direita para a esquerda, na solenidade de posse e em outros eventos de grande importância para o Município.Art. 2º A Faixa Prefeital, criada por esta Lei, terá entre 1,70 metros e 2,10 metros de comprimento, 12 centímetros de largura, sendo 4 centímetros de largura para cada cor da Bandeira do Município, ostentando em sua face posterior o Brasão do Município bordado, com acabamento em franjas douradas de 10 centímetros de comprimento, suportando, ainda, no ponto de cruzamento de suas extremidades, uma roseta nas cores verde e amarelo, representando a República Federativa do Brasil, e no centro uma medalha com o Brasão do Estado de Santa Catarina, representando a unidade da federação a qual Nova Veneza pertence.Art. 3º O Prefeito, no ato solene de sua posse, logo após o compromisso a que se refere o art. 48, caput, da Lei Orgânica do Município, receberá a Faixa Prefeital das mãos do Presidente da Câmara de Vereadores ou, a critério dos Prefeitos, sucedido e sucessor, das mãos daquele que se encontra deixando o cargo.  Parágrafo único. O Prefeito poderá transferir provisoriamente a Faixa Prefeital ao Vice-Prefeito, em suas licenças eventuais, retomando-a tão logo retorne ao exercício do cargo.Art. 4º As despesas decorrentes da execução da presente Lei serão suportadas por dotações orçamentárias próprias.Art. 5º Esta Lei entra em vigor na data de sua publicação, revogando-se as disposições em contrário.Nova Veneza, SC, 14 de junho de 2017.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 14 de junho de 2017.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

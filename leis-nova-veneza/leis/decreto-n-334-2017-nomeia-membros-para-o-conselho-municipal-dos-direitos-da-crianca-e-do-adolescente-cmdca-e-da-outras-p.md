@@ -1,0 +1,15 @@
+# DECRETO Nº 334, DE 1º DE JUNHO DE 2017.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 26/10/2021
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2017/34/334/decreto-n-334-2017-nomeia-membros-para-o-conselho-municipal-dos-direitos-da-crianca-e-do-adolescente-cmdca-e-da-outras-providencias
+
+## Texto Completo
+
+Versão consolidada, com alterações até o dia 11/12/2017
+
+                        DECRETO Nº 334, DE 1º DE JUNHO DE 2017.(Revogado pelo Decreto nº 514/2017) "NOMEIA MEMBROS PARA O CONSELHO MUNICIPAL DOS DIREITOS DA CRIANÇA E DO ADOLESCENTE - CMDCA, E DÁ OUTRAS PROVIDÊNCIAS.".ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, DECRETA:Art. 1º Ficam nomeados para o Conselho Municipal dos Direitos da Criança e do Adolescente - CMDCA, criado pela Lei Municipal nº 2.308, de 29 de novembro de 2013, os seguintes membros:  I - Representantes da Secretaria Municipal de Educação:  a) TITULAR: Ivone Zocche;  b) SUPLENTE: Patrícia Bristot de Bem.  II - Representante da Secretaria Municipal de Saúde:  a) TITULAR: Maristela Regina Vitali Cúnico;  b) SUPLENTE: Simone Frigo.  III - Representante da Secretaria Municipal de Assistência Social:  a) TITULAR: Janaina Bordignon Policarpi;  b) SUPLENTE: Susana Pagani.  b) SUPLENTE: Mariane Preis Ugioni. (Redação dada pelo Decreto nº 445/2017)  IV - Representante da Secretaria Municipal de Cultura, Esporte e Turismo:  a) TITULAR: Júlia Gava;  b) SUPLENTE: Gabriel da Conceição.  V - Representante da Secretaria Municipal de Administração e Finanças:  a) TITULAR: Joana Maccarini Torquato;  b) SUPLENTE: Irecê Carneiro de Araújo.  VI - Representante do Caravaggio Futebol Clube:  a) TITULAR: Evandro de Souza Martins;  b) SUPLENTE: Marília Daminelli Zanette.  VII - Representantes do Coral Infanto Juvenil Os Peregrinos da Montanha:  a) TITULAR: Janete Machado;  b) SUPLENTE: Doranei Amboni Lourenço.  VIII - Representante da Associação de Pais e Amigos dos Excepcionais - APAE:  a) TITULAR: Karina Spillere Remor;  b) SUPLENTE: Bianca Martins.  b) SUPLENTE: Luana Soratto. (Redação dada pelo Decreto nº 445/2017)  IX - Representante do Grupo Folclórico Ítalo Brasileiro:  a) TITULAR: Ivogenes Duminelli Niehues;  b) SUPLENTE: Vanessa Begnini.  X - Representante da Associação Feminina de Assistência Veneziana - AFAVE:  a) TITULAR: Vera Rosana Rocha Spillere;  b) SUPLENTE: Sidnei Vitória Ghellere Frigo.Art. 2º As nomeações não acarretarão ônus aos cofres públicos.Art. 3º Este Decreto entra em vigor na data de sua publicação.Art. 4º Revogam-se as disposições em contrário, em especial o Decreto Municipal nº 299, de 07 de abril de 2014.Nova Veneza, SC, 1º de junho de 2017.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 1º de junho de 2017.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

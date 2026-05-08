@@ -1,0 +1,15 @@
+# LEI Nº 2.565, DE 19 DE JUNHO DE 2017.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 18/09/2019
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2017/257/2565/lei-ordinaria-n-2565-2017-dispoe-sobre-a-instituicao-de-funcoes-gratificadas-aos-servidores-efetivos-da-camara-municipal-de-nova-veneza-sc-designados-para-atender-desempenho-de-atividade-especial-e-da-outras-providencias
+
+## Texto Completo
+
+Versão consolidada, com alterações até o dia 06/09/2019
+
+                        LEI Nº 2.565, DE 19 DE JUNHO DE 2017.(Revogada pela Lei nº 2717/2019) "DISPÕE SOBRE A INSTITUIÇÃO DE FUNÇÕES GRATIFICADAS AOS SERVIDORES EFETIVOS DA CÂMARA MUNICIPAL DE NOVA VENEZA-SC DESIGNADOS PARA ATENDER DESEMPENHO DE ATIVIDADE ESPECIAL E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica instituída Função Gratificada para servidores efetivos designados para atender desempenho de atividades especial, de forma permanente ou temporária, conforme segue: _______________________________________________________|     ATIVIDADE ESPECIAL    |           VALOR           ||===========================|===========================||Membro   de   Comissão   de|R$    350,00(trezentos    e||Licitação                  |cinquenta reais) por mês   ||---------------------------|---------------------------||Membro   de   Comissão   de|R$    350,00(trezentos    e||Patrimônio                 |cinquenta reais) por mês   ||---------------------------|---------------------------||Membro      de     Comissão|R$    350,00(trezentos    e||Coordenadora   do   Projeto|cinquenta reais ) por mês  ||Vereador Mirim             |                           ||___________________________|___________________________|expandir tabela  § 1º Os membros da Comissão de Licitação, Comissão de Patrimônio e Comissão Coordenadora do Projeto Vereador Mirim serão nomeados por intermédio de Portaria, assinada pelo Presidente da Câmara Municipal de Nova Veneza - SC.  § 2º A função gratificada será devida na proporção da efetiva participação do servidor.  § 3º A função gratificada criada por esta Lei não se incorpora aos vencimentos do servidor, cessando o seu pagamento com o afastamento deste da Atividade Especial designada.  § 4º O valor da função gratificada será reajustado na mesma data e com o mesmo índice da revisão geral anual dos servidores municipais.Art. 2º Não será permitido o acúmulo de função gratificada a um mesmo servidor, ainda que venha participar de mais de uma Comissão.Art. 3º Esta Lei entrará em vigor na data de sua publicação, revogando as disposições em contrário.Nova Veneza, SC, 19 de junho de 2017.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 19 de junho de 2017.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

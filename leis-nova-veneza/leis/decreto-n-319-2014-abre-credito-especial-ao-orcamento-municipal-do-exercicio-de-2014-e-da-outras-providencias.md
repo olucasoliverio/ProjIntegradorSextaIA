@@ -1,0 +1,13 @@
+# DECRETO Nº 319, DE 25 DE ABRIL DE 2014.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 01/07/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2014/32/319/decreto-n-319-2014-abre-credito-especial-ao-orcamento-municipal-do-exercicio-de-2014-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 319, DE 25 DE ABRIL DE 2014. "ABRE CRÉDITO ESPECIAL AO ORÇAMENTO MUNICIPAL DO EXERCÍCIO DE 2014 E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, usando das atribuições legais que lhe são conferidas através da Lei Orgânica Municipal c/c a Lei Municipal 2.358, de 25 de abril de 2014, DECRETA:Art. 1º Fica inserido projeto e aberto crédito especial, conforme abaixo discriminado, destinado ao empenhamento de despesas de capital, relativas a Construção de Pórtico de Entrada, Ação adicionada ao Programa 14 - Turismo e Cultura Integrados - Lei Municipal Nº 2.279/2013 - PPA 2014/2017 e Lei Municipal Nº 2.291/2013 - LDO 2014, não previstas na Lei Orçamentária do exercício em curso, no valor total de R$ 30.000,00 (trinta mil reais):Órgão 09: Secretaria de Cultura, Esporte e TurismoProjeto 3.001: Construção de Pórtico de EntradaModalidade de Aplicação: 4.4.90.00.00(0.1.00) - Aplicações Diretas.........................R$ 30.000,00TOTAL......................................................................................R$ 30.000,00Art. 2º Os recursos para suprir o Crédito Especial de que trata o artigo anterior, correrão por conta da anulação da seguinte dotação do orçamento vigente da Unidade Prefeitura Municipal de Nova Veneza.Órgão 10: Secretaria de Transportes, Obras e Serviços UrbanosProj./Atividade 1.045: Pavimentação de Vias, Rodovias e LogradourosModalidade de Aplicação: 4.4.90.00.00.0.1.00(100) - Aplicações Diretas.....................R$ 30.000,00  Parágrafo Único - A anulação da dotação de que trata este artigo se dará na forma dos dispositivos da Lei Federal 4.320/64 e procedimentos contábeis vigentes.Art. 3º Ficam ajustadas as metas físicas e financeiras, nos anexos correspondentes do Plano Plurianual PPA 2014/2017 (Lei Municipal nº 2.279/2013) e na Lei de Diretrizes Orçamentárias - LDO 2014 (Lei Municipal nº 2.291/2013), em função da inserção do Projeto de que trata o presente decreto.Art. 4º Revogadas as disposições em contrário, este decreto entra em vigor na data de sua publicação.Nova Veneza/SC, 25 de abril de 2014.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 25 de abril de 2014.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

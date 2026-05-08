@@ -1,0 +1,13 @@
+# DECRETO Nº 406, DE 31 DE JULHO DE 2014.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 30/06/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2014/41/406/decreto-n-406-2014-regulamenta-o-funcionamento-da-comissao-intersetorial-destinada-a-elaborar-o-plano-municipal-de-atendimento-socioeducativo-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 406, DE 31 DE JULHO DE 2014.REGULAMENTA O FUNCIONAMENTO DA COMISSÃO INTERSETORIAL DESTINADA A ELABORAR O PLANO MUNICIPAL DE ATENDIMENTO SOCIOEDUCATIVO, E DÁ OUTRAS PROVIDÊNCIAS.EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, no uso de suas atribuições legais previstas na Lei Orgânica Municipal e considerando o teor da Lei Federal nº 12.594/12 e a Resolução nº 15/2014 do Conselho Municipal dos Direitos da Criança e do Adolescente que criou a Comissão Intersetorial destinada a elaborar o Plano Municipal de Atendimento Socioeducativo, DECRETA:Art. 1º Ficam os servidores municipais indicados no art. 2º da Resolução nº 15 de 29 de julho de 2014 do Conselho Municipal dos Direitos da Criança e do Adolescente (CMDCA), incumbidos de participar das reuniões previstas no art. 3º, da citada norma, salvo absoluta impossibilidade de comparecimento, que deverá ser justificada ao Coordenador da respectiva Comissão, no prazo de até 2 (dois) dias uteis anteriores a próxima reunião.  Parágrafo Único - Os servidores municipais que tiverem que participar das reuniões previstas no art. 3º da resolução supra mencionada, deverão cientificar seus superiores hierárquicos de tal necessidade, arquivando cópia da ata de reunião em pasta própria, apenas para fins de comprovação de comparecimento ao ato.Art. 2º Fica estabelecido que a equipe de apoio para auxiliar na realização das reuniões da comissão e secretariar os trabalhos, expedindo ofícios e elaborando os documentos necessários, será a mesma encarregada de auxiliar nos trabalhos do Conselho Municipal dos Direitos da Criança e Adolescente (CMDCA), desde que as reuniões de trabalho não sejam realizadas em horários e datas coincidentes.Art. 3º A participação na Comissão Intersetorial destinada a elaborar o Plano Municipal de Atendimento Socioeducativo não será de forma alguma remunerada.Art. 4º Revogadas as disposições em contrário, este decreto entra em vigor na data da sua publicaçãoNova Veneza/SC, 31 de julho de 2014.EVANDRO LUIS GAVAPrefeito MunicipalPublicado e Registrado em 31 de julho de 2014.CÉSAR AUGUTUS BOSTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,13 @@
+# LEI Nº 2409, DE 21 DE NOVEMBRO DE 2014.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 15/04/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2014/241/2409/lei-ordinaria-n-2409-2014-estabelece-o-calendario-fiscal-para-o-exercicio-de-2015-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2409, DE 21 DE NOVEMBRO DE 2014. "ESTABELECE O CALENDÁRIO FISCAL PARA O EXERCÍCIO DE 2015, E DÁ OUTRAS PROVIDÊNCIAS".EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, SC, faz saber a todos os habitantes deste Município que a Câmara Municipal aprovou e ele sanciona a seguinte Lei.Art. 1º Fica estabelecido o calendário fiscal do Município de Nova Veneza, para o exercício de 2015, obedecendo-se os seguintes cronogramas:  I - I.P.T.U. - IMPOSTO PREDIAL E TERRITORIAL URBANO  a) Pagamento em cota única COM DESCONTO de 10% (dez por cento), com vencimento para o dia 15/04/2015. Os contribuintes que não possuírem débitos de IPTU nos exercícios anteriores, será concedido mais 10% (dez por cento) de desconto.  b) Pagamento em cinco (05) parcelas, SEM DESCONTO, nos seguintes vencimentos:1ª Parcela - 15/04/20152ª Parcela - 15/05/20153ª Parcela - 15/06/20154ª Parcela - 15/07/20155ª Parcela - 17/08/2015  Parágrafo Único - Aplicam-se à Taxa de Coleta de Resíduos Sólidos (TCRS) os mesmos percentuais de desconto e datas de pagamento, conforme art. 1º.  II - ALVARÁ (T.V.C.P.N.U.) - TAXA DE VERIFICAÇÃO DO CUMPRIMENTO DAS POSTURAS E NORMAS URBANÍSTICAS  a) Pagamento em cota única com 10% (dez por cento) de desconto, com vencimento no dia 27/02/2015.  b) Pagamento em três (03) parcelas, SEM DESCONTO, com vencimento nos dias 27/02/2015, 27/03/2015 e 27/04/2015.  III - I.S.S.- IMPOSTO SOBRE SERVIÇOS  1) FIXO:  a) Pagamento em cota única com 10% (dez por cento) de Desconto, com vencimento no dia 15/04/2015.  b) Pagamento em nove (09) parcelas, SEM DESCONTO, a contar do dia 15/04/2015, com vencimento no mesmo dia nos meses subsequentes.  2) HOMOLOGADO:  a) Com vencimento no dia 10 (dez) do mês subsequente.  IV - ALVARÁ SANITÁRIO ANUAL (POR ATIVIDADE DESENVOLVIDA)  a) Pagamento em cota única com 10% (dez por cento) de desconto, com vencimento no dia 27/02/2015.  b) Pagamento em três (03) parcelas, SEM DESCONTO, com vencimento nos dias 27/02/2015, 27/03/2015 e 27/04/2015.Art. 2º Esta lei entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza/SC, 21 de novembro de 2014.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 21 de novembro de 2014.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,13 @@
+# DECRETO Nº 424, DE 01 DE SETEMBRO DE 2017.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 08/02/2018
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2017/43/424/decreto-n-424-2017-concede-progressao-por-antiguidade-ao-servidor-sergio-bosa-marangoni-ocupante-do-cargo-de-provimento-efetivo-de-motorista-i
+
+## Texto Completo
+
+DECRETO Nº 424, DE 01 DE SETEMBRO DE 2017.Concede Progressão por Antiguidade ao servidor SERGIO BOSA MARANGONI ocupante do cargo de provimento efetivo de Motorista I.ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, usando das atribuições legais e de conformidade com o Art. 17 a 19 da Lei Complementar 001 de 03 de abril de 2012, DECRETA:Art. 1º Fica concedida Progressão por Antiguidade ao servidor SERGIO BOSA MARANGONI ocupante do cargo de provimento efetivo Motorista, referente ao período aquisitivo de 10 de agosto de 2012 a 09 de agosto de 2017, consistindo na movimentação da referencia 14 para referencia 15, com vencimentos fixados em Lei.Art. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza/SC, de 01 de setembro de 2017.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalRegistrada e publicada, em 01 de setembro de 2017.OSNIR ANGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

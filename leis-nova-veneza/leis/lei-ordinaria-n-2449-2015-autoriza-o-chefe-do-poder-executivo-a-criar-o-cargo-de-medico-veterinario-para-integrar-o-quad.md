@@ -1,0 +1,13 @@
+# LEI Nº 2449 DE 08 DE MAIO DE 2015.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 13/05/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2015/245/2449/lei-ordinaria-n-2449-2015-autoriza-o-chefe-do-poder-executivo-a-criar-o-cargo-de-medico-veterinario-para-integrar-o-quadro-permanente-de-pessoal-do-poder-executivo-do-municipio-de-nova-veneza-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2449 DE 08 DE MAIO DE 2015. "AUTORIZA O CHEFE DO PODER EXECUTIVO A CRIAR O CARGO DE MÉDICO VETERINÁRIO PARA INTEGRAR O QUADRO PERMANENTE DE PESSOAL DO PODER EXECUTIVO DO MUNICÍPIO DE NOVA VENEZA, E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, em conformidade com o disposto na Lei Orgânica Municipal c/c as Leis Municipais nº 1830/2007 e 2.125/2011, bem como com a Lei Complementar nº 01/2012, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo Municipal autorizado a criar o cargo de MÉDICO VETERINÁRIO, que passará a integrar o quadro permanente de pessoal do poder executivo municipal, disposto nos anexos da Lei Municipal nº 2.125 de 20 de dezembro de 2011, a qual alterou disposições da Lei Municipal nº 1.830 de 26 de junho de 2007, e conforme especificado abaixo: _______________________________________________________________________________|Quantidade de|  Categoria Funcional |   Amplitude  |    Carga    |  Vencimento ||    Cargos   |                      | de Referência|   Horária   |   Inicial   ||=============|======================|==============|=============|=============||           01|MÉDICO VETERINÁRIO    |34 à 42       |40h semanais |  R$ 3.106,00||_____________|______________________|______________|_____________|_____________|expandir tabela  Parágrafo Único - O cargo de Médico Veterinário deverá ser ocupado por profissional devidamente habilitado, com curso superior e registro no órgão fiscalizador do exercício da profissão.Art. 2º O servidor contratado ficará sujeito ao Estatuto dos Servidores Públicos Municipal, para efeito de vínculo empregatício e ao Regime Geral da Previdência Social, para efeito da legislação previdenciária.Art. 3º Para ingresso no cargo ora criado, o Poder Público realizará concurso público, na forma da legislação em vigor.Art. 4º Esta Lei entra em vigor na data de sua publicação.Art. 5º Revogam-se as disposições em contrário.Nova Veneza/SC, 08 de maio de 2015.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 08 de maio de 2015.ROBERTO JOSÉ SÁVIO CAETANOSecretário Municipal Interino de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

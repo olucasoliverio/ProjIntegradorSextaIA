@@ -1,0 +1,15 @@
+# DECRETO Nº 382, DE 27 DE JULHO DE 2017.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 26/10/2021
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2017/39/382/decreto-n-382-2017-delega-atribuicoes-aos-servidores-que-menciona-e-da-outras-providencias
+
+## Texto Completo
+
+Versão consolidada, com alterações até o dia 15/03/2018
+
+                        DECRETO Nº 382, DE 27 DE JULHO DE 2017.(Revogado pelo Decreto nº 151/2018) "DELEGA ATRIBUIÇÕES AOS SERVIDORES QUE MENCIONA, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, DECRETA:Art. 1º Ficam atribuídas funções aos Servidores Públicos Municipais conforme quadro a seguir especificado: _____________________________________________________________________________|           ATRIBUIÇÃO           |       SERVIDOR      |     SIGNATÁRIO(S)    ||================================|=====================|======================||Assinar termo de habite-se      |Renato Pieri         |Carlos Luciano Savi   ||--------------------------------|---------------------|----------------------||Aprovar projetos para construção|Renato Pieri         |Carlos Luciano Savi   ||--------------------------------|---------------------|----------------------||Aprovação   de  parcelamento  do|Renato Pieri         |Carlos Luciano Savi   ||solo            (desmembramento,|                     |                      ||loteamento,    remembramento   e|                     |                      ||unificação de imóvel            |                     |                      ||--------------------------------|---------------------|----------------------||Emitir  declarações  e certidões|Renato Pieri         |Carlos Luciano Savi   ||sobre   questões   do  setor  de|                     |                      ||planejamento                    |                     |                      ||--------------------------------|---------------------|----------------------||Emitir   termo   de  embargo  ou|Renato Pieri         |Felipe Niehues Furlan ||fiscalização de obras civis     |                     |----------------------||                                |                     |Carlos Luciano Savi   ||--------------------------------|---------------------|----------------------||Emitir Alvará de Construção     |Renato Pieri         |Carlos Luciano Savi   ||________________________________|_____________________|______________________|expandir tabelaArt. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário, em especial o Decreto Municipal nº 421, de 26 de abril de 2013.Nova Veneza, SC, 27 de julho de 2017.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 27 de julho de 2017.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

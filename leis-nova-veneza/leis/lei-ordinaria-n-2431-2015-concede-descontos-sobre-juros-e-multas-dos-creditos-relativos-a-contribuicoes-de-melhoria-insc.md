@@ -1,0 +1,13 @@
+# LEI Nº 2431, DE 13 DE MARÇO DE 2015.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 16/04/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2015/244/2431/lei-ordinaria-n-2431-2015-concede-descontos-sobre-juros-e-multas-dos-creditos-relativos-a-contribuicoes-de-melhoria-inscritos-em-divida-ativa-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2431, DE 13 DE MARÇO DE 2015. "CONCEDE DESCONTOS SOBRE JUROS E MULTAS DOS CRÉDITOS RELATIVOS A CONTRIBUIÇÕES DE MELHORIA, INSCRITOS EM DÍVIDA ATIVA E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, faz saber a todos os habitantes deste Município que a Câmara Municipal aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo Municipal autorizado a conceder descontos sobre juros e multas, dos créditos tributários inscritos em dívida ativa e que sejam relativos a CONTRIBUIÇÃO DE MELHORIA, que se dará da seguinte forma:  I - desconto de 80% (oitenta por cento) para pagamento à vista;  II - desconto de 70% (setenta por cento) para pagamento em até 03 (três) parcelas;  III - desconto de 50% (cinquenta por cento) para pagamento igual ou acima de 04 (quatro) parcelas, podendo ser realizado da seguinte forma:  a) Para pagamentos com valor até R$ 1.000,00, poderá a dívida ser parcelada em até 10 (dez) vezes;  b) Para pagamentos com valor entre R$ 1.001,00 até R$ 2.000,00 poderá a dívida ser parcelada em até 16 (dezesseis) vezes;  c) Para pagamentos com valor entre R$ 2.001,00 até R$ 3.000,00 poderá a dívida ser parcelada em até 20 (vinte) vezes;  d) Para pagamentos com valor acima de R$ 3.001,00, poderá a dívida ser parcelada em até 26 (vinte e seis) vezes;  § 1º Os descontos referidos neste artigo somente serão concedidos aos contribuintes que solicitarem o benefício até 31 de agosto de 2015.  § 2º Fica estipulado o valor de R$ 100,00 (cem reais), como o valor mínimo de cada parcela.  § 3º O inadimplemento de qualquer das parcelas, importará no imediato cancelamento do parcelamento, ficando cancelado o benefício estabelecido no "caput" deste artigo, retornando o crédito tributário ao valor anterior ao parcelamento, abatendo-se o valor das parcelas pagas, acrescidos dos encargos legais.Art. 2º Esta Lei entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza/SC, 13 de março de 2015.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 13 de março de 2015.ROBERTO JOSÉ SÁVIO CAETANOSecretário Interino Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

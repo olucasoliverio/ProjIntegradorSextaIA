@@ -1,0 +1,13 @@
+# EMENDA À LEI ORGÂNICA Nº 17, DE 12 DE SETEMBRO DE 2017.
+
+**Tipo:** EMENDA À LEI ORGÂNICA Nº
+**Número:** 
+**Data:** 22/08/2017
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/emenda-a-lei-organica/2017/2/17/emenda-a-lei-organica-n-17-2017-altera-o-artigo-131-da-lei-organica-municipal-que-trata-da-publicacao-dos-atos-municipais-e-da-outras-providencias
+
+## Texto Completo
+
+EMENDA À LEI ORGÂNICA Nº 17, DE 12 DE SETEMBRO DE 2017. "ALTERA O ARTIGO 131 DA LEI ORGÂNICA MUNICIPAL, QUE TRATA DA PUBLICAÇÃO DOS ATOS,MUNICIPAIS E DÁ OUTRAS PROVIDÊNCIAS".A Mesa Diretora da Câmara de Vereadores de Nova Veneza, no uso de suas atribuições, FAZ SABER, que os vereadores desta Casa Legislativa aprovaram, por UNANIMIDADE, o Projeto de Emenda a Lei Orgânica do Poder Executivo nº 001, de 15 de agosto de2017, em primeiro turno na Sessão Ordinária do dia 22/08/2017 e em segundo turno na Sessão Ordinária do dia 12/09/2017, e nós PROMULGAMOS, conforme disposto no Artigo 32, § 2º da Lei Orgânica do Município de Nova Veneza e Artigo 151, § 2º, do Regimento Interno da Câmara de Vereadores de Nova Veneza, a seguinte Emenda a Lei Orgânica:  "ALTERA O ARTIGO 131 DA LEI ORGÂNICA MUNICIPAL, QUE TRATA DA PUBLICAÇÃO DOS ATOS, MUNICIPAIS E DÁ OUTRAS PROVIDÊNCIAS".Art. 1º O art. 131 da à Lei Orgânica Municipal passa a vigorar com a seguinte redação:  "Art. 131 ...  § 1º ...  § 2º Os atos municipais que produzam efeitos externos serão publicados no órgão oficial do Município definido em lei ou, na falta deste, em diário da respectiva associação municipal ou em jornal local ou microrregião a que pertencer.  § 3º A lei poderá instituir diário oficial eletrônico do Município, disponibilizado em sítio da rede mundial de computadores, para publicação dos atos municipais.  § 4º O sítio e o conteúdo das publicações de que trata § 1º deverão ser assinados digitalmente com base em certificado emitido por Autoridade Certificadora credenciada no âmbito da Infraestrutura de Chaves Públicas Brasileira (ICP-Brasil).  § 5º A publicação eletrônica na forma do § 1º substitui qualquer outro meio e publicação oficial, para quaisquer efeitos legais, à exceção dos casos que, por lei especial, exijam outro meio de publicação."Art. 2º Esta Emenda entra em vigor na data de sua publicação, revogando-se as disposições em contrário.Nova Veneza, SC, 12 de setembro de 2017.Eloir MinattoPresidenteEdaltro Luiz BortolottoVereadorArlindo da Silva1º Secretário
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

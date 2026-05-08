@@ -1,0 +1,13 @@
+# DECRETO Nº 500, DE 29 DE NOVEMBRO DE 2017.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 01/12/2017
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2017/50/500/decreto-n-500-2017-abre-ao-orcamento-do-municipio-em-favor-das-dotacoes-orcamentarias-que-menciona-credito-suplementar-no-valor-de-r-310000-00-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 500, DE 29 DE NOVEMBRO DE 2017. "ABRE AO ORÇAMENTO DO MUNICÍPIO, EM FAVOR DAS DOTAÇÕES ORÇAMENTÁRIAS QUE MENCIONA, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 310.000,00, E DÁ OUTRAS PROVIDÊNCIAS."SÉRGIO ALBERTO SPILERE, Prefeito Municipal e.e. de Nova Veneza, SC, usando das atribuições legais, e em conformidade com a Lei Municipal nº 2.601, de 29 de novembro de 2017, DECRETA:Art. 1º Fica aberto ao Orçamento do Município de 2017, em favor das dotações orçamentárias abaixo consignadas, crédito suplementar no valor de R$ 310.000,00 (trezentos e dez mil reais):Órgão 02: GESTÃO DO CENTRO ADMINISTRATIVOAtividade 2.003 Manutenção do Gabinete do Prefeito, Vice e AssessoriasModalidade de Aplicação 3.1.90.00.00.00.00 0700 (4) - Aplicações Diretas...R$ 140.000,00Órgão 09: SECRETARIA DE CULTURA, ESPORTES E TUR.Atividade 2.058 Manutenção da Secretaria de Cultura, Esporte e TurismoModalidade de Aplicação 3.1.90.00.00.00.00 0700 (82) - Aplicações Diretas...R$ 170.000,00VALOR TOTAL ... R$ 310.000,00Art. 2º Os recursos destinados à suplementação do artigo anterior correrão por conta anulação dos seguintes créditos orçamentários:Órgão 10: SECRETARIA DE TRANSP. OBRAS E SERV. URB.Atividade 1.046 Aquisição de Máquinas Equipamentos e VeículosModalidade de Aplicação 4.4.90.00.00.00.00 0700 (95) - Aplicações Diretas...R$ 100.000,00Órgão 10: SECRETARIA DE TRANSP. OBRAS E SERV. URB.Atividade 1.049 Construção e Ampliação de CemitériosModalidade de Aplicação 4.4.90.00.00.00.00 0700 (103) - Aplicações Diretas...R$ 50.000,00Órgão 11: SECRETARIA DE INDUSTRIA E COMÉRCIOAtividade 1.056 Incentivo para Implantação e Ampliação de IndustriasModalidade de Aplicação 4.4.90.00.00.00.00 0700 (120) - Aplicações Diretas..R$ 160.000,00VALOR TOTAL ... R$ 310.000,00Art. 3º Este Decreto entra em vigor na data de sua publicação, revogando-se as disposições em contrario.Nova Veneza, SC, 29 de novembro de 2017.SÉRGIO ALBERTO SPILEREPrefeito Municipal e.e.Publicado e registrado em 29 de novembro de 2017.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

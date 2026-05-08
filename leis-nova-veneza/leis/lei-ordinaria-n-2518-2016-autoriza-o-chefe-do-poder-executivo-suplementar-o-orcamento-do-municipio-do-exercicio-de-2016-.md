@@ -1,0 +1,13 @@
+# LEI Nº 2518, DE 29 DE JUNHO DE 2016.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 24/08/2016
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2016/252/2518/lei-ordinaria-n-2518-2016-autoriza-o-chefe-do-poder-executivo-suplementar-o-orcamento-do-municipio-do-exercicio-de-2016-por-conta-da-transposicao-de-dotacoes
+
+## Texto Completo
+
+LEI Nº 2518, DE 29 DE JUNHO DE 2016.AUTORIZA O CHEFE DO PODER EXECUTIVO SUPLEMENTAR O ORÇAMENTO DO MUNICÍPIO DO EXERCÍCIO DE 2016 POR CONTA DA TRANSPOSIÇÃO DE DOTAÇÕESEVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo Municipal autorizado suplementar a dotação orçamentária nas Atividades abaixo discriminadas, por se apresentarem insuficientes para o empenhamento de despesas, limitado ao valor total de R$ 560.000,00 (quinhentos e sessenta mil reais), por conta da transposição de dotações, como segue:Órgão 06: SECRETARIA DE ADM. E FINANÇAS.Atividade 2.008 Manutenção dos Serviços AdministrativosModalidade de Aplicação 3.3.90.00.0700 (20) - Aplicações Diretas.............R$ 400.000,00Órgão 07: SECRETARIA DE EDUCAÇÃO.Atividade 2.020 Manutenção de Outros Níveis de Ensino e Incentivos DiversosModalidade de Aplicação 3.3.90.00.0719 (58) - Aplicações Diretas.............R$ 160.000,00VALOR TOTAL .................................................................R$ 560.000,00Art. 2º Os recursos destinados à suplementação do artigo anterior correrá por conta anulação do seguinte crédito orçamentário:Órgão 07: SECRETARIA DE EDUCAÇÃOAtividade 2.014 Transporte EscolarModalidade de Aplicação 3.3.90.00.0719 (46) - Aplicações Diretas.............R$ 160.000,00Órgão 10: SECRETARIA DE TRANSP. OBRAS E SERV. URBAtividade 1.046 Aquisição de Máquinas Equipamentos e VeículosModalidade de Aplicação 4.4.90.00.0700 (95) - Aplicações Diretas.............R$ 400.000,00VALOR TOTAL .................................................................R$ 560.000,00Art. 3º Revogando-se as disposições em contrário esta Lei entra em vigor na data de sua publicação.Nova Veneza, 29 de junho de 2016.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 29 de junho de 2016.ROBERTO JOSÉ SÁVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

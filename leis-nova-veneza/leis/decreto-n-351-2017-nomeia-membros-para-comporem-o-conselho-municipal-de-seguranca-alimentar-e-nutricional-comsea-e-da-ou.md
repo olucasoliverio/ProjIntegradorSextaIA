@@ -1,0 +1,13 @@
+# DECRETO Nº 351, DE 23 DE JUNHO DE 2017.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 30/11/2017
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2017/36/351/decreto-n-351-2017-nomeia-membros-para-comporem-o-conselho-municipal-de-seguranca-alimentar-e-nutricional-comsea-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 351, DE 23 DE JUNHO DE 2017. "NOMEIA MEMBROS PARA COMPOREM O CONSELHO MUNICIPAL DE SEGURANÇA ALIMENTAR E NUTRICIONAL (COMSEA), E DÁ OUTRAS PROVIDÊNCIAS.".ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, DECRETA:Art. 1º Ficam nomeados para compor o Conselho Municipal De Segurança Alimentar E Nutricional (COMSEA), criado pela Lei Municipal nº 1.731, de 14 de junho de 2005, os seguintes membros:  I - Representantes da APAE:Titular: Karina Spillere RemorSuplente: Tereza Ducemar Brolesi  II - Representantes do Conselho Tutelar:Titular: Maria Eduarda Sávio GavaSuplente: Luciana Rodrigues da Luz  III - Representantes da AFAVE:Titular: Cleusa Garcia BrattiSuplente: Juliane Maravai  IV - Representantes do Sindicato dos Trabalhadores Rurais:Titular: Evandro BoaroliSuplente: Valcirléia Alexandre Presa  V - Representantes da Pastoral da Criança:Titular: Edda BúrigoSuplente: Marilene Gava Romagnha  VI - Representantes da Coofanove:Titular: Altair Andrea ValdatiSuplente: Laércio Luiz Gava  VII - Representantes da Pastoral da Saúde:Titular: Lenita Zenir Nuernberg RomagnhaSuplente: Terezinha Brunelli  VII - Representantes da Epagri:Titular: Daniel MendonçaSuplente: Donato Lucietti  IX - Representantes do Poder Legislativo Municipal:Titular: Arlindo da SilvaSuplente: Claiton Zanzi  X - Representantes do Poder Público Municipal:Titular: Titular: Paula Graziela SpillereTitular: Angélica Eyng PreisTitular: Vilson BarchinskiTitular: Guilherme GavaSuplente: Marli da SilvaSuplente: José Carlos PolicarpiSuplente: Cristiane FreitasSuplente: Joana Torquato MacariniArt. 2º As nomeações não acarretarão ônus aos cofres públicos.Art. 3º Este Decreto entra em vigor na data de sua publicação.Art. 4º Revogam-se as disposições em contrário, em especial o Decreto Municipal nº 571, de 31 de dezembro de 2015.Nova Veneza, SC, 23 de junho de 2017.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 23 de junho de 2017.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

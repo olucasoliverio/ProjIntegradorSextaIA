@@ -1,0 +1,13 @@
+# DECRETO Nº 336, DE 26 DE SETEMBRO DE 2018.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 31/01/2019
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2018/34/336/decreto-n-336-2018-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-transportes-obras-e-servicos-urbanos-credito-suplementar-no-valor-de-r-2010822-38-por-conta-de-excesso-de-arrecadacao-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 336, DE 26 DE SETEMBRO DE 2018. "ABRE AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE TRANSPORTES, OBRAS E SERVIÇOS URBANOS, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 2.010.822,38, POR CONTA DE EXCESSO DE ARRECADAÇÃO, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 8º, inciso I, da Lei Municipal nº 2.593, de 27 de outubro de 2017, DECRETA:Art. 1º Fica aberto ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 2.593, de 27 de outubro de 2017), em favor da Secretaria Municipal de Transportes, Obras e Serviços Urbanos, crédito suplementar no valor de R$ 2.010.822,38 (dois milhões dez mil oitocentos e vinte e dois reais e trinta e oito centavos), por conta de excesso de arrecadação, para atender a programação abaixo discriminada:Órgão 10 SECRETARIA DE TRANSP. OBRAS E SERV. URB.Unidade 01 Departamento de Estradas de RodagemProj./Ativ. 1.040 Pavimentação de Vias, Rodovias e LogradourosModalidade: 4.4.90.00.00.00.00.00 0755 (91) Aplicações Diretas...R$ 2.010.822,38TOTAL...R$ 2.010.822,38Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º decorrem do excesso de arrecadação proveniente do Convênio nº 2014TR001968 oriundo do Estado de Santa Catarina.  Parágrafo único. As despesas por conta do crédito de que trata o caput do artigo 1º, correspondentes aos recursos do Convênio citado, ficam condicionadas e limitadas ao efetivo ingresso dos valores nos cofres do Município.Art. 3º Este Decreto entra em vigor na data de sua publicação, revogando-se as disposições em contrário.Nova Veneza, SC, 26 de setembro de 2018.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e registrado em 26 de setembro de 2018.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

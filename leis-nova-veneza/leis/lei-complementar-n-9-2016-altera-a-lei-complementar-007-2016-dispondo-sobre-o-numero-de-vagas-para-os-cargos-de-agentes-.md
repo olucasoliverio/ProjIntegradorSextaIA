@@ -1,0 +1,13 @@
+# LEI COMPLEMENTAR Nº 9, DE 29 DE JUNHO DE 2016.
+
+**Tipo:** LEI COMPLEMENTAR Nº
+**Número:** 
+**Data:** 30/11/2017
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-complementar/2016/1/9/lei-complementar-n-9-2016-altera-a-lei-complementar-007-2016-dispondo-sobre-o-numero-de-vagas-para-os-cargos-de-agentes-comunitarios-de-saude-relacionados-a-estrategia-da-saude-da-familia-do-municipio-de-nova-veneza-e-da-outras-providencias
+
+## Texto Completo
+
+LEI COMPLEMENTAR Nº 9, DE 29 DE JUNHO DE 2016. "ALTERA A LEI COMPLEMENTAR 007/2016 DISPONDO SOBRE O NÚMERO DE VAGAS PARA OS CARGOS DE AGENTES COMUNITÁRIOS DE SAÚDE RELACIONADOS À ESTRATÉGIA DA SAÚDE DA FAMILIA DO MUNICÍPIO DE NOVA VENEZA E DÁ OUTRAS PROVIDÊNCIAS".EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, no uso de suas atribuições legais, previstas na Lei Orgânica Municipal, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Altera a tabela do número vagas do Anexo II da Lei Complementar municipal nº 007 de 10 de março de 2016, que passa a ter a seguinte redação: _______________________________________________________________|            DENOMINAÇÃO           |       NÚMERO DE VAGAS      ||==================================|============================||              Médico              |          06 (seis)         ||----------------------------------|----------------------------||            Enfermeiro            |          06 (seis)         ||----------------------------------|----------------------------|| Auxiliar e Técnico em Enfermagem |          06 (seis)         ||----------------------------------|----------------------------||    Agente Comunitário de Saúde   |        40 (quarenta)       ||----------------------------------|----------------------------||        Cirurgião Dentista        |          06 (seis)         ||----------------------------------|----------------------------||      Auxiliar em Saúde Bucal     |          06 (seis)         ||__________________________________|____________________________|expandir tabelaArt. 2º As despesas decorrentes da execução desta lei correrão por conta de verbas orçamentárias próprias, suplementadas se necessário.Art. 3º Esta Lei entrará em vigor na data de sua publicação, revogadas todas as disposições em contrário.Nova Veneza, 29 de junho de 2016.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 29 de junho de 2016ROBERTO JOSÉ SÁVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

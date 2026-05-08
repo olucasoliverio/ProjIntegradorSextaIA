@@ -1,0 +1,13 @@
+# DECRETO Nº 356, DE 11 DE OUTUBRO DE 2018.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 31/01/2019
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2018/36/356/decreto-n-356-2018-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-cultura-esporte-e-turismo-credito-suplementar-no-valor-de-r-30000-00-por-conta-da-transposicao-de-recursos-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 356, DE 11 DE OUTUBRO DE 2018. "ABRE AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE CULTURA, ESPORTE E TURISMO, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 30.000,00, POR CONTA DA TRANSPOSIÇÃO DE RECURSOS, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 8º, inciso III, da Lei Municipal nº 2.593, de 27 de outubro de 2017, e Lei Municipal nº 2.647, de 11 de outubro de 2018, DECRETA:Art. 1º Fica, o Chefe do Poder Executivo Municipal, autorizado a abrir, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 2.593, de 27 de outubro de 2017), em favor da Secretaria Municipal de Cultura, Esportes e Turismo, crédito suplementar no valor de R$ 30.000,00 (trinta mil reais), para atender a programação abaixo discriminada:Órgão 09: SECRETARIA DE CULTURA, ESPORTES E TUR.Unidade 01: Depto. de Cultura/Esportes e TurismoProj./Ativ. 2.075: Infraestrutura, Manutenção e Incentivo a EventosAplicação: 3.3.90.00.00.00.00.00 0700 (84) - Aplicações Diretas...R$ 30.000,00TOTAL:...R$ 30.000,00Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º decorrem da anulação parcial das seguintes dotações orçamentárias:Órgão 09: SECRETARIA DE CULTURA, ESPORTES E TUR.Unidade 01: Depto. de Cultura/Esportes e TurismoProj./Ativ. 2.022: Apoio ao Esporte AmadorAplicação: 3.3.90.00.00.00.00.00 0700 (77) - Aplicações Diretas...R$ 30.000,00TOTAL:...R$ 30.000,00Art. 3º Este Decreto entra em vigor na data de sua publicação.Art. 4º Revogam-se as disposições em contrário.Nova Veneza, SC, 11 de outubro de 2018.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e registrado em 11 de outubro de 2018.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

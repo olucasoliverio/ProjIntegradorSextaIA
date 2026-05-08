@@ -1,0 +1,13 @@
+# LEI Nº 2.627, DE 02 DE JULHO DE 2018.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 03/08/2018
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2018/263/2627/lei-ordinaria-n-2627-2018-autoriza-o-chefe-do-poder-executivo-a-abrir-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-assistencia-social-credito-suplementar-no-valor-de-r-25000-00-por-conta-da-transposicao-de-recursos-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2.627, DE 02 DE JULHO DE 2018. "AUTORIZA O CHEFE DO PODER EXECUTIVO A ABRIR AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE ASSISTÊNCIA SOCIAL, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 25.000,00, POR CONTA DA TRANSPOSIÇÃO DE RECURSOS, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica, o Chefe do Poder Executivo Municipal, autorizado a abrir, ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 2.593, de 27 de outubro de 2017), em favor da Secretaria Municipal de Assistência Social, crédito suplementar no valor de R$ 25.000,00 (vinte e cinco mil reais), para atender a programação abaixo discriminada:Órgão 14: SECRETARIA DE ASSISTÊNCIA SOCIALUnidade 01: Secretaria de Assistência SocialProj./Ativ. 2.062: Ações de Apoio a Criança e AdolescenteAplicação: 3.3.90.00.00.00.00.00 0701 (23) - Aplicações Diretas...R$ 10.000,00Órgão 14: SECRETARIA DE ASSISTÊNCIA SOCIALUnidade 01: Secretaria de Assistência SocialProj./Ativ. 2.073: Manutenção dos Serviços Assistênciais da InfânciaAplicação: 3.3.90.00.00.00.00.00 0701 (25) - Aplicações Diretas...R$ 15.000,00TOTAL:...R$ 25.000,00Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º decorrem da anulação parcial das seguintes dotações orçamentárias:Órgão 14: SECRETARIA DE ASSISTÊNCIA SOCIALUnidade 01: Secretaria de Assistência SocialProj./Ativ. 2.034: Manutenção dos Programas de Atenção Social BásicaAplicação: 4.4.90.00.00.00.00.00 0701 (13) - Aplicações Diretas...R$ 25.000,00TOTAL:...R$ 25.000,00Art. 3º Esta Lei entra em vigor na data de sua publicação.Art. 4º Revogam-se as disposições em contrário.Nova Veneza, SC, 02 de julho de 2018.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 02 de julho de 2018.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

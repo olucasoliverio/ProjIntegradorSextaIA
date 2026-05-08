@@ -1,0 +1,13 @@
+# DECRETO Nº 179, DE 22 DE FEVEREIRO DE 2017.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 24/08/2017
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2017/18/179/decreto-n-179-2017-abre-credito-especial-ao-orcamento-da-prefeitura-municipal-de-nova-veneza-por-conta-do-excesso-de-arrecadacao-de-convenio-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 179, DE 22 DE FEVEREIRO DE 2017. "ABRE CRÉDITO ESPECIAL AO ORÇAMENTO DA PREFEITURA MUNICIPAL DE NOVA VENEZA POR CONTA DO EXCESSO DE ARRECADAÇÃO DE CONVÊNIO E DÁ OUTRAS PROVIDÊNCIAS.".ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza/SC, usando das atribuições legais e de conformidade com o art. 1º da Lei Municipal nº 2.547, de 17 de fevereiro de 2017, DECRETA:Art. 1º Fica aberto Crédito Especial no Orçamento do Município, com fundamento na Lei Municipal nº 2.547, de 17 de fevereiro de 2017, para empenhamento de despesas de capital não previstas na Lei Orçamentária do exercício em curso, no valor de R$ 172.666,67 (cento e setenta e dois mil, seiscentos e sessenta e seis reais e sessenta e sete centavos), conforme abaixo discriminado:Órgão 02 GABINETE DO PREFEITOProj./Atividade 1.066: Aquisição de Veículos e EquipamentosFunção 08: Assistência SocialSubfunção 244: Assistência ComunitáriaModalidade de Aplicação: 44.90.00.706 (149) Aplicações Diretas...R$ 130.000,00Modalidade de Aplicação: 4.4.90.00.750 (150) Aplicações Diretas...R$ 42.666,67TOTAL...R$ 172.666,67Art. 2º Os recursos para suprir o crédito especial de que trata o artigo anterior, correrão por conta dos recursos dos seguintes créditos orçamentários:  I - R$ 130.000,00 (cento e trinta mil reais) a serem arrecadados na forma de Convênio com a União destinado à estruturação da rede de serviços de proteção social especial - aquisição de bens;  II - R$ 42.666,67 (quarenta e dois mil, seiscentos e sessenta e seis reais e sessenta e sete reais), por conta do superávit financeiro do exercício anterior - Recursos Ordinários, creditados em contas correntes específicas, na data-base 31 de dezembro de 2016.  Parágrafo único. As despesas por conta do crédito especial de que trata o artigo 1º, correspondente aos recursos de convênio, ficam condicionas e limitadas ao efetivo ingresso dos valores nos cofres do Município.Art. 3º Revogando-se as disposições em contrário, este Decreto entra em vigor na data de sua publicação.Nova Veneza, SC, 22 de fevereiro de 2017.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e registrado em 22 de fevereiro de 2017.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

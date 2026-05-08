@@ -1,0 +1,13 @@
+# DECRETO Nº 71, DE 30 DE JANEIRO DE 2019.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 11/02/2019
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2019/8/71/decreto-n-71-2019-declara-de-utilidade-publica-para-posterior-aquisicao-pelo-municipio-de-nova-veneza-area-de-terra-que-especifica-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 71, DE 30 DE JANEIRO DE 2019. "DECLARA DE UTILIDADE PÚBLICA, PARA POSTERIOR AQUISIÇÃO PELO MUNICÍPIO DE NOVA VENEZA, ÁREA DE TERRA QUE ESPECIFICA, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, DECRETA:Art. 1º Fica declarado de utilidade pública, para posterior aquisição pelo Município de Nova Veneza, SC, por doação, compra e venda, permuta, transação, compensação, desapropriação amigável ou judicial, fração de área de 28,45 m² (vinte e oito vírgula quarenta e cinco metros quadrados) do terreno urbano de propriedade de Valdemir João Sachet, casado com Margareth Nuernberg Sachet, matriculado sob o nº 9.699 do 2º Ofício de Registro de Imóveis da Comarca de Criciúma/SC, conforme descrição abaixo especificada:  "01 (uma) fração do terreno urbano (28,45 m²), situado em secção Bortoluzzi, Município de Nova Veneza, Comarca de Criciúma/SC, Lote nº 10, com área total de 3.221,35m² (três mil, duzentos e vinte e um vírgula trinta e cinco metros quadrados), imóvel registrado sob a matrícula nº 9.699 do 2º Ofício de Registro de Imóveis da Comarca de Criciúma/SC."Art. 2º O imóvel adquirido será destinado ao para fins de implantação da rotatória na Rodovia José Spillere - AE - 446ª, no Distrito de Nossa Senhora do Caravaggio, Nova Veneza/SC, conforme mapa em anexo.Art. 3º Para fins de avaliação da área mencionada deverá ser considerado a avaliação realizada pela Comissão Permanente de Avaliação, nomeada através do Decreto nº 177, de 20 de fevereiro de 2017.Art. 4º Este Decreto entra em vigor na data de sua publicação.Art. 5º Revogam-se as disposições em contrário, em especial o Decreto nº 461, de 03 de agosto de 2015.Nova Veneza, SC, 30 de janeiro de 2019.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e registrado em 30 de janeiro de 2019.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças O anexo encontra-se disponível, ainda, no Paço Municipal
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

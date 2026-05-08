@@ -1,0 +1,13 @@
+# DECRETO Nº 412, DE 06 DE AGOSTO DE 2014.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 30/06/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2014/42/412/decreto-n-412-2014-declara-de-utilidade-publica-o-desassoreamento-de-parte-do-leito-do-rio-cedro
+
+## Texto Completo
+
+DECRETO Nº 412, DE 06 DE AGOSTO DE 2014.DECLARA DE UTILIDADE PÚBLICA O DESASSOREAMENTO DE PARTE DO LEITO DO RIO CEDRO.EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, usando das atribuições legais, e em conformidade com o artigo 53 da Lei Orgânica do Município e;Considerando que anualmente ocorre fortes precipitações na bacia do Rio Cedro;Considerando que o assoreamento impede a vazão das águas e ocasiona transbordamentos laterais atingindo estradas, residências e outras edificações nas Comunidades de São Bento Alto e Santo Antônio;Considerando que a situação atual tem ocasionado insegurança da população, gerado desta forma conflitos e desestímulo a mesma;Considerando os prejuízos sociais e econômicos;Considerando as manifestações dos moradores das comunidades afetadas;Considerando a finalidade de proporcionar o aumento de secção transversal desta parte do rio;Considerando a diminuição dos prejuízos econômicos e sociais, bem como o aumento do nível de segurança da população das comunidades extremantes ao rio;E por fim, considerando a redução dos riscos frequentes de alagamento, bem como o intuito de tranquilizar e a melhorar a qualidade de vida da população envolvida, DECRETA:Art. 1º Fica declarada de utilidade pública, como medida preventiva e contenção de cheias, o desassoreamento de parte do leito do Rio Cedro, sendo esta, localizada entre os trechos abaixo delimitados:- Trecho 01 - Inicio (ponte Belica): Coordenada UTM SAD 69. Nº 6828.000m, E. 638.175,00m;- Trecho 02 - Final: Coordenada UTM SAD 69. Nº 6828.800m, E. 639.450,00m.Art. 2º A área do leito do rio descrita no artigo anterior tem como objetivo específico a limpeza, aprofundamento e alargamento de parte do leito do Rio Cedro.Art. 3º Revogadas as disposições em contrario, este decreto entra em vigor na data de sua publicação.Nova Veneza/SC, 06 de agosto de 2014.EVANDRO LUIS GAVAPrefeito MunicipalPublicado e registrado em 06 de agosto de 2014.EDUARDO VASSOLER UGIONISecretário Municipal de Planejamento e UrbanismoCÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

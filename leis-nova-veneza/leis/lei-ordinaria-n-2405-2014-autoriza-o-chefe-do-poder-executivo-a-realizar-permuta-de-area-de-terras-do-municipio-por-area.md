@@ -1,0 +1,15 @@
+# LEI Nº 2405, DE 14 DE NOVEMBRO DE 2014.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 26/01/2016
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2014/241/2405/lei-ordinaria-n-2405-2014-autoriza-o-chefe-do-poder-executivo-a-realizar-permuta-de-area-de-terras-do-municipio-por-area-de-terras-de-propriedade-do-senhor-valdemar-carminatti-e-da-outras-providencias
+
+## Texto Completo
+
+Versão consolidada, com alterações até o dia 16/04/2015
+
+                        LEI Nº 2405, DE 14 DE NOVEMBRO DE 2014.(Revogada pela Lei nº 2441/2015) "AUTORIZA O CHEFE DO PODER EXECUTIVO A REALIZAR PERMUTA DE ÁREA DE TERRAS DO MUNICÍPIO POR ÁREA DE TERRAS DE PROPRIEDADE DO SENHOR VALDEMAR CARMINATTI E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, no uso de suas atribuições legais, previstas na Lei Orgânica Municipal, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo Municipal autorizado a realizar permuta da área de terra de 1.942,75m² (um mil, novecentos e quarenta e dois metros e setenta e cinco centímetros quadrados) do terreno urbano, lote nº 01, situado em Secção Rio Mãe Luzia, Distrito de Nossa Senhora de Caravaggio, Município de Nova Veneza, Comarca de Criciúma/SC, com as seguintes confrontações: Norte: 54,00 metros com área de Bertino Scotti; Sul, 54,00 metros com a servidão existente; Leste: 36,09 metros com o lote nº 02; Oeste: 35,85 metros com terras de Laercio Antônio Milanez, conforme matricula nº 11.742 do 2º Oficio de Registro de Imóveis de Criciúma/SC, avaliado pela Comissão de Avaliação Permanente de Bens Imóveis designadas através do Decreto nº 115, de 23 de janeiro de 2013, em R$ 175.000,00 (cento e setenta e cinco mil reais) pelo imóvel de propriedade do Sr. Valdemar Carminatti, abaixo descrito:  "Um terreno urbano, situado em Caravaggio, Município de Nova Veneza, Comarca de Criciúma/SC, com a área total de 406,00 m² (quatrocentos e seis metros quadrados), e confrontações especificadas na matricula sob o nº 4.556, junto ao 2º Oficio do Registro de Imóveis da Comarca de Criciúma/SC, avaliado em R$ 185.000,00 (cento e oitenta e cinco mil reais)."Art. 2º A área de terra supra referida, destinar-se-á a criação de uma área de lazer público central no Distrito de Caravaggio.Art. 3º Fazem parte integrante da presente Lei, os documentos comprobatórios compostos através de cópia das matriculas dos imóveis nas quais encontram-se inseridas as áreas acima descritas, cópia dos termos de avaliação emitidas pela Comissão de Avaliação Permanente de Bens Móveis e Imóveis, bem como mapa de localização e memorial descritivo, das duas áreas.Art. 4º Esta Lei entra em vigor na data de sua publicação.Art. 5º Revogam-se as disposições em contrario.Nova Veneza/SC, 14 de novembro de 2014.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 14 de novembro de 2014.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

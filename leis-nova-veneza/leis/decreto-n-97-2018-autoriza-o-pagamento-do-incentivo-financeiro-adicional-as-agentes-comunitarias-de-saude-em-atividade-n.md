@@ -1,0 +1,13 @@
+# DECRETO Nº 97, DE 14 DE FEVEREIRO DE 2018.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 04/05/2018
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2018/10/97/decreto-n-97-2018-autoriza-o-pagamento-do-incentivo-financeiro-adicional-as-agentes-comunitarias-de-saude-em-atividade-no-municipio-de-nova-veneza-nos-termos-do-art-9-d-da-lei-federal-n-11350-de-05-de-outubro-de-2006-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 97, DE 14 DE FEVEREIRO DE 2018. "AUTORIZA O PAGAMENTO DO INCENTIVO FINANCEIRO ADICIONAL ÀS AGENTES COMUNITÁRIAS DE SAÚDE EM ATIVIDADE NO MUNICÍPIO DE NOVA VENEZA, NOS TERMOS DO ART. 9º D, DA LEI FEDERAL nº 11.350, DE 05 DE OUTUBRO DE 2006, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com o art. 9º D, da Lei Federal nº 11.350, de 05 de outubro de 2006, DECRETA:Art. 1º Fica autorizado o pagamento do incentivo financeiro adicional às Agentes Comunitárias de Saúde, nos termos do art. 9ª-D, da Lei Federal nº 11.350, de 05 de outubro de 2006 e seus respectivos regulamentos, referente aos valores repassados pelo Fundo Nacional de Saúde no exercício de 2017, os quais serão rateados entre todas as Agentes Comunitárias de Saúde em atividade no Município de Nova Veneza, conforme Detalhe de Pagamento que faz parte integrante do presente Decreto.  Parágrafo único. O pagamento do incentivo financeiro adicional que se refere o caput não importa em direito adquirido para os próximos exercícios, quando a utilização dos recursos repassados pelo Fundo Nacional de Saúde poderá ser utilizada em outras modalidades de despesas, mediante análise de conveniência e oportunidade da Secretaria Municipal de Saúde.Art. 2º As despesas decorrentes da execução deste Decreto correrão por conta de dotações orçamentárias próprias consignadas no orçamento, suplementadas se necessário.Art. 3º Este Decreto entra em vigor na data de sua publicação, revogando-se as disposições em contrário.Nova Veneza, SC, 14 de fevereiro de 2018.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e registrado em 14 de fevereiro de 2018.MARISTELA REGINA VITALI CÚNICOGestora do Fundo Municipal de Saúde O anexo encontra-se disponível, ainda, no Paço Municipal
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

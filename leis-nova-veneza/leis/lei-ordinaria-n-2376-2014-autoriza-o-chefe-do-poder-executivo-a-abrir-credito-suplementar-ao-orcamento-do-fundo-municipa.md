@@ -1,0 +1,13 @@
+# LEI Nº 2376, DE 08 DE AGOSTO DE 2014.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 16/04/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2014/238/2376/lei-ordinaria-n-2376-2014-autoriza-o-chefe-do-poder-executivo-a-abrir-credito-suplementar-ao-orcamento-do-fundo-municipal-de-saude-do-exercicio-de-2014-por-conta-da-transposicao-de-dotacoes-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2376, DE 08 DE AGOSTO DE 2014. "AUTORIZA O CHEFE DO PODER EXECUTIVO A ABRIR CRÉDITO SUPLEMENTAR AO ORÇAMENTO DO FUNDO MUNICIPAL DE SAÚDE DO EXERCÍCIO DE 2014 POR CONTA DA TRANSPOSIÇÃO DE DOTAÇÕES E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo Municipal autorizado a abrir crédito suplementar, por conta da transposição de dotações, destinados ao empenhamento de despesas correntes, no valor total de até R$ 54.200,00 (cinquenta e quatro mil e duzentos reais):Unidade: FUNDO MUNICIPAL DE SAÚDEÓrgão 13: Secretaria de SaúdeAtividade 2.024: Manutenção da Rede Municipal de SaúdeModalidade de Aplicação: 3.3.90.00.00.00 0100 (11) - Aplicações Diretas....................R$ 54.200,00Art. 2º Os recursos para a abertura dos créditos suplementares de que trata o art. 1º correrão por conta da anulação dos seguintes créditos orçamentários:Unidade: FUNDO MUNICIPAL DE SAÚDEÓrgão 13: Secretaria de SaúdeProjeto 1.027 Construção, Ampliação Unid., Aquis.Veículos e EquipamentosModalidade de Aplicação: 4.4.90.00.0100(05) - Aplicações Diretas...........................R$ 39.800,00Atividade 2.028 Manutenção das Ações de Saúde Infância e AdolescênciaModalidade de Aplicação: 3.3.90.00.0100(21) - Aplicações Diretas............................R$ 2.000,00Atividade 2.030 Manutenção dos Programas de Saúde PúblicaModalidade de Aplicação: 3.3.90.00.0100(29) - Aplicações Diretas............................R$ 4.800,00Atividade 2.031 Formação e Capacitação ProfissionalModalidade de Aplicação: 3.3.90.00.0100(30) - Aplicações Diretas............................R$ 7.600,00Art. 3º Revogadas as disposições em contrário, esta Lei entra em vigor na data de sua publicação.Nova Veneza, 08 de agosto de 2014.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 08 de agosto de 2014.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

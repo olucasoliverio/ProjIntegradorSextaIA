@@ -1,0 +1,13 @@
+# DECRETO Nº 397, DE 20 DE NOVEMBRO DE 2018.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 31/01/2019
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2018/40/397/decreto-n-397-2018-designa-memros-para-compor-comissao-de-representacao-honoraria-do-municipio-de-nova-veneza-perante-as-provincias-locais-e-demais-municipios-da-regiao-do-veneto-italia-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 397, DE 20 DE NOVEMBRO DE 2018. "DESIGNA MEMROS PARA COMPOR COMISSÃO DE REPRESENTAÇÃO HONORÁRIA DO MUNICÍPIO DE NOVA VENEZA PERANTE AS PROVÍNCIAS LOCAIS E DEMAIS MUNICÍPIOS DA REGIÃO DO VÊNETO - ITÁLIA, E DÁ OUTRAS PROVIDÊNCIAS.".ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, DECRETA:Art. 1º Ficam designados membros para compor a Comissão de Representação Honorária do Município de Nova Veneza perante as Províncias e demais Municípios da Região do Vêneto - Itália, conforme segue:  I - PAOLA LAIN, italiana, casada, prefeita do Município de Malo (VI) - Itália, passaporte nº YA8168411 residente e domiciliada na Rua Del Colle, 11, Centro, Malo (VI), Região do Vêneto, Itália. CEP 36034. (Presidente);  II - ROBERTO SETTE, italiano, solteiro, advogado, Deputado da Província de Vicenza, Itália, passaporte nº YA8968929 residente e domiciliado na Rua San Vito, 13, Casa de Malo, Região do Vêneto, Itália. CEP 36034;  III - MAURIZIO COGO, italiano, casado, engenheiro mecânico, Vereador de Malo (VI) - Itália, passaporte nº YA9665480 residente e domiciliado a Rua Ugo Foscolo, 19, Centro, Malo (VI). Região do Vêneto, Itália. CEP 36034.Art. 2º Fica delegada à Comissão nominada no artigo anterior, sob a presidência da Sra. PAOLA LAIN, para exercer a promoção de todos os atos necessários a representação do Município de Nova Veneza perante as Províncias locais e demais Municípios da Região do Vêneto - Itália.Art. 3º As nomeações não acarretarão ônus aos cofres públicos.Art. 4º Este Decreto entra em vigor na data de sua publicação, revogando-se as disposições em contrário, em especial o Decreto 418, de 19 de abril de 2013.Nova Veneza, SC, 20 de novembro de 2018.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 20 de novembro de 2018.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

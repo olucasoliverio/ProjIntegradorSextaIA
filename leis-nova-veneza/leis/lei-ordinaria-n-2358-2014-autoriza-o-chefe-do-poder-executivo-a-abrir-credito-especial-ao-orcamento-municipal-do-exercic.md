@@ -1,0 +1,13 @@
+# LEI Nº 2358, DE 25 DE ABRIL DE 2014.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 16/04/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2014/236/2358/lei-ordinaria-n-2358-2014-autoriza-o-chefe-do-poder-executivo-a-abrir-credito-especial-ao-orcamento-municipal-do-exercicio-de-2014-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2358, DE 25 DE ABRIL DE 2014. "AUTORIZA O CHEFE DO PODER EXECUTIVO A ABRIR CRÉDITO ESPECIAL AO ORÇAMENTO MUNICIPAL DO EXERCÍCIO DE 2014 E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo Municipal autorizado a inserir projeto e abrir crédito especial, conforme abaixo discriminado, destinado ao empenhamento de despesas de capital, relativas a Construção de Pórtico de Entrada, Ação adicionada ao Programa 14 - Turismo e Cultura Integrados - Lei Municipal Nº 2.279/2013 - PPA 2014/2017 e Lei Municipal Nº 2.291/2013 - LDO 2014, não previstas na Lei Orçamentária do exercício em curso, no valor total de R$ 30.000,00 (trinta mil reais):Órgão 09: Secretaria de Cultura, Esporte e TurismoProjeto 3.001: Construção de Pórtico de EntradaModalidade de Aplicação: 4.4.90.00.00(0.1.00) - Aplicações Diretas.........................R$ 30.000,00TOTAL......................................................................................R$ 30.000,00Art. 2º Os recursos para suprir o Crédito Especial de que trata o artigo anterior, correrão por conta da anulação da seguinte dotação do orçamento vigente da Unidade Prefeitura Municipal de Nova Veneza.Órgão 10: Secretaria de Transportes, Obras e Serviços UrbanosProj./Atividade 1.045: Pavimentação de Vias, Rodovias e LogradourosModalidade de Aplicação: 4.4.90.00.00.0.1.00(100) - Aplicações Diretas.....................R$ 30.000,00  Parágrafo Único - A anulação da dotação de que trata este artigo se dará na forma dos dispositivos da Lei Federal 4.320/64 e procedimentos contábeis vigentes.Art. 3º Ficam autorizados os ajustes nas metas físicas e financeiras, nos anexos correspondentes do Plano Plurianual PPA 2014/2017 (Lei Municipal nº 2.279/2013) e na Lei de Diretrizes Orçamentárias - LDO 2014 (Lei Municipal nº 2.291/2013), em função da inserção do Projeto de que trata a presente Lei.Art. 4º Revogadas as disposições em contrário, esta Lei entra em vigor na data de sua publicação.Nova Veneza/SC, 25 de abril de 2014.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 25 de abril de 2014.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

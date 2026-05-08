@@ -1,0 +1,13 @@
+# LEI Nº 2383, DE 05 DE SETEMBRO DE 2014
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 16/04/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2014/239/2383/lei-ordinaria-n-2383-2014-autoriza-o-chefe-do-poder-executivo-abrir-credito-especial-ao-orcamento-do-municipio-do-exercicio-de-2014
+
+## Texto Completo
+
+LEI Nº 2383, DE 05 DE SETEMBRO DE 2014 "AUTORIZA O CHEFE DO PODER EXECUTIVO ABRIR CRÉDITO ESPECIAL AO ORÇAMENTO DO MUNICÍPIO DO EXERCÍCIO DE 2014."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, faz saber a todos, que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo Municipal autorizado a abrir crédito especial e elemento de despesa/modalidade de aplicação, no orçamento do Município, conforme abaixo discriminado, destinado ao empenhamento de despesas correntes e de capital, vinculação 0100 - Recursos Próprios, não previstas na Lei Orçamentária do exercício em curso, no valor total de até R$ 6.060,00 (seis mil e sessenta reais):Órgão 08: SECRETARIA DE AGRICULTURAProj./Ativ. 2.052 Manutenção da secretaria de AgriculturaModalidade de Aplicação: 3.1.71.00.0040(__) - Transf. à Consórcios Públicos.................R$ 4.226,00Modalidade de Aplicação: 3.3.71.00.0040(__) - Transf. à Consórcios Públicos.................R$ 1.636,00Modalidade de Aplicação: 4.4.71.00.0040(__) - Transf. à Consórcios Públicos...................R$ 198,00TOTAL.......................................................................................R$ 6.060,00Art. 2º Os recursos destinados a abertura do crédito especial de que trata o artigo anterior, correrão por conta da anulação dos seguintes créditos orçamentários do exercício em curso.Órgão 08: SECRETARIA DE AGRICULTURAProj./Ativ. 2.052 Manutenção da secretaria de AgriculturaModalidade de Aplicação: 3.1.90.00.0040(60) - Aplicações Diretas............................R$ 6.060,00Art. 3º Ficam autorizados os ajustes nas metas físicas e financeiras do Plano Plurianual 2014/2017 - Lei Municipal nº 2.279/2013 e da Lei de Diretrizes Orçamentárias do exercício de 2014 - Lei Municipal nº 2.291/2014, que se fizerem necessários em função do disposto no artigo 1º desta Lei.Art. 4º Esta Lei entra em vigor na data de sua publicação.Art. 5º Revogam-se as disposições em contrárioNova Veneza/SC, 05 de setembro de 2014.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 05 de setembro de 2014.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

@@ -1,0 +1,13 @@
+# DECRETO Nº 200, DE 02 DE MAIO DE 2018.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 19/09/2018
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2018/20/200/decreto-n-200-2018-nomeia-membros-para-a-comissao-especial-de-controle-monitoramento-e-homologacao-do-programa-de-incentivo-fiscal-nos-termos-do-art-4-da-lei-municipal-n-2615-de-20-de-abril-de-2018-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 200, DE 02 DE MAIO DE 2018. "NOMEIA MEMBROS PARA A COMISSÃO ESPECIAL DE CONTROLE, MONITORAMENTO E HOMOLOGAÇÃO DO PROGRAMA DE INCENTIVO FISCAL, NOS TERMOS DO ART. 4º, DA LEI MUNICIPAL nº 2.615, DE 20 DE ABRIL DE 2018, E DÁ OUTRAS PROVIDÊNCIAS"ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, em conformidade com o art. 4º, caput, da Lei Municipal nº 2.615, de 20 de abril de 2018, DECRETA:Art. 1º Ficam nomeados para a Comissão Especial de Controle, Monitoramento e Homologação do Programa de Incentivo Fiscal, criado pela Lei Municipal nº 2.615, de 20 de abril de 2018, os seguintes membros:  I - 01 (um) Representante do SIMEC: Rogério Mendes;  II - 01 (um) Representante da Associação de Moradores: Rogério Spillere;  III - 01 (um) Representante do CAEP: Odair Zanette;  IV - 01 (um) Representante do Poder Público Municipal: Sérgio Alberto Spillere;  V - 01 (um) Representante da Sociedade Civil Organizada: Marcos Spillere;  VI - 01 (um) Representante do Rotary Clube: Arlindo da Silva;  VII - 01 (um) Representante do Santuário de Nossa Senhora de Caravaggio: Padre Valdemar Carminatti.Art. 2º A Comissão designada fica responsável pela análise, aprovação e comprovação do investimento de cada contribuinte, nas condições e prazos estabelecidos no termo de adesão.  Parágrafo único. Fica a Comissão Especial de Controle, Monitoramento e Homologação, responsável em apresentar parecer conclusivo sobre cada requerimento, sendo posteriormente homologado pelo Prefeito Municipal.Art. 3º As nomeações não acarretarão ônus aos cofres públicos.Art. 4º Este Decreto entra em vigor na data de sua publicação.Art. 5º Revogam-se as disposições em contrário.Nova Veneza, SC, 02 de maio de 2018.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e Registrado em 02 de maio de 2018.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

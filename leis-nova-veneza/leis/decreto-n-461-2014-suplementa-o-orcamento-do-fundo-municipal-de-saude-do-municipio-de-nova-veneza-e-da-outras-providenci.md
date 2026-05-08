@@ -1,0 +1,13 @@
+# DECRETO Nº 461, DE 19 DE SETEMBRO DE 2014.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 26/06/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2014/47/461/decreto-n-461-2014-suplementa-o-orcamento-do-fundo-municipal-de-saude-do-municipio-de-nova-veneza-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 461, DE 19 DE SETEMBRO DE 2014. "SUPLEMENTA O ORÇAMENTO DO FUNDO MUNICIPAL DE SAÚDE DO MUNICÍPIO DE NOVA VENEZA E, DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, no uso de suas atribuições e em conformidade com os dispositivos da Lei Municipal Nº 2.311, de 02 de dezembro de 2013, combinada c/c Lei Municipal Nº 2.355, de 11 de abril de 2014, e Considerando os dispositivos contidos na LDO - Lei de Diretrizes Orçamentárias do exercício de 2014 - Lei Municipal Nº 2.291, de 11 de outubro de 2013, em especial o contido no artigo 47;Considerando os termos dos parágrafos 1, 2 e 3, do Prejulgado Nº 1794, resultante da Decisão Plenária Nº 1087/2006, do Tribunal de Contas do Estado de Santa Catarina, DECRETA:Art. 1º Fica aberta suplementação a dotação orçamentária na atividade abaixo descrita, por se apresentar insuficiente, para o empenho de despesas, limitado ao valor total de até R$ 5.354,00 (cinco mil, trezentos e cinquenta e quatro reais), por conta da transposição de dotações, como segue:Órgão 13: SECRETARIA DA SAUDEAtividade 2.024 Manutenção da Rede Municipal de SaúdeModalidade de Aplicação 3.3.90.00.0.100 (11) - Aplicações Diretas ..........................R$ 5.354,00Art. 2º Os recursos destinados a suplementação do artigo anterior correrão por conta da anulação das seguintes dotações orçamentárias:Órgão 13: SECRETARIA DA SAUDEAtividade 2.024 Manutenção da Rede Municipal de SaúdeModalidade de Aplicação 3.1.70.00.0.100 (6) - Transf. a Consórcios Públicos...................R$ 544,00Modalidade de Aplicação 3.1.71.00.0.100 (8) - Transf. a Consórcios Públicos ................R$ 4.422,00Modalidade de Aplicação 4.4.71.00.0.100 (14) - Transf. a Consórcios Públicos..................R$ 388,00TOTAL ......................................................................................R$ 5.354,00Art. 3º Revogando-se as disposições em contrário, este decreto entra em vigor na data de sua publicação.Nova Veneza/SC, 19 de setembro de 2014.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 19 de setembro de 2014.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

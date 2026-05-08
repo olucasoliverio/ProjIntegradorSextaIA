@@ -1,0 +1,13 @@
+# LEI Nº 2384, DE 05 DE SETEMBRO DE 2014
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 16/04/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2014/239/2384/lei-ordinaria-n-2384-2014-autoriza-o-chefe-do-poder-executivo-municipal-a-contratar-em-carater-temporario-agentes-comunitarios-de-saude-para-atendimento-ao-acs-agentes-comunitarios-de-saude-de-nova-veneza-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2384, DE 05 DE SETEMBRO DE 2014 "AUTORIZA O CHEFE DO PODER EXECUTIVO MUNICIPAL A CONTRATAR EM CARATER TEMPORÁRIO, AGENTES COMUNITÁRIOS DE SAÚDE PARA ATENDIMENTO AO ACS - AGENTES COMUNITÁRIOS DE SAÚDE DE NOVA VENEZA, E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo Municipal autorizado a contratar em caráter temporário, nos termos do Art. 37, IX, da Constituição Federal, 34 (trinta e quatro) AGENTES COMUNITÁRIOS DE SAÚDE para atendimento do ACS - Agentes Comunitários de Saúde no Município de Nova Veneza.  Parágrafo Único - A duração do contrato de trabalho com os servidores para os cargos de agente comunitária de saúde se dará em caráter temporário e limitar-se-á a vigência do convênio com o Ministério da Saúde, ou sucedâneo.Art. 2º Os servidores contratados temporariamente ficam sujeitos ao Estatuto dos Servidores Municipais para efeito de vínculo empregatício e ao Regime Geral da Previdência Social, para efeito da legislação previdenciária.Art. 3º A contratação temporária para ingresso no cargo de Agente Comunitário de Saúde, se dará por meio de processo seletivo realizado pelo Poder Executivo, que garanta a ampla publicidade, a impessoalidade e a igualdade entre os candidatosArt. 4º As despesas decorrentes desta Lei correrão por conta de dotações próprias do orçamento municipal, do exercício em que ocorrerem.Art. 5º Esta Lei entra em vigor na data de sua publicação..Art. 6º Revogam-se as disposições em contrário, em especial a Lei Municipal nº 1.645 de 29 de outubro de 2003 e a Lei Municipal nº 2.165 de 14 de maio de 2012.Nova Veneza/SC, 05 de setembro de 2014.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 05 de setembro de 2014.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

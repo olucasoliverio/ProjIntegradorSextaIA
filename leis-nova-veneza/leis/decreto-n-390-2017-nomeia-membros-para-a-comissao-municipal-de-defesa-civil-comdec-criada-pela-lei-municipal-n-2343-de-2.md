@@ -1,0 +1,15 @@
+# DECRETO Nº 390, DE 28 DE JULHO DE 2017.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 27/10/2021
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2017/39/390/decreto-n-390-2017-nomeia-membros-para-a-comissao-municipal-de-defesa-civil-comdec-criada-pela-lei-municipal-n-2343-de-24-de-marco-de-2014-e-da-outras-providencias
+
+## Texto Completo
+
+Versão consolidada, com alterações até o dia 04/02/2019
+
+                        DECRETO Nº 390, DE 28 DE JULHO DE 2017.(Revogado pelo Decreto nº 121/2019) "NOMEIA MEMBROS PARA A COMISSÃO MUNICIPAL DE DEFESA CIVIL - COMDEC, CRIADA PELA LEI MUNICIPAL nº 2.343, DE 24 DE MARÇO DE 2014, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, usando das atribuições legais que lhe são conferidas pela Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 2.343, de 24 de março de 2014, DECRETA:Art. 1º Ficam nomeados para a Comissão Municipal de Defesa Civil - COMDEC, criada pela Lei Municipal nº 2.343, de 24 de março de 2014, os seguintes membros:  I - Coordenador da COMPDEC (Presidente):  a) SERGIO ALBERTO SPILLERE.  II - Representantes do Poder Executivo Municipal:  a) VILSON BARCHINSKI (Secretaria Municipal de Administração e Finanças);  b) TÚLIO AMBONI FIGUEIREDO (Secretaria Municipal de Saúde);  c) DANIELA MICHELS ZANELATTO (Secretaria Municipal de Assistência Social);  d) ÉLZIO JOSÉ MILANEZ (Secretaria Municipal de Educação);  e) SÉRGIO RICARDO UGGIONI (Secretaria Municipal de Agricultura);  f) CARLOS TARCISIO MATHIAS (Secretaria Municipal de Transportes, Obras e Serviços Urbanos);  g) ZELINDO MORETTO (Secretaria Municipal de Planejamento);  h) HERITON SANDRINI (Secretaria Municipal de Cultura, Esporte e Turismo);  i) CÉLIO ANTÔNIO BOAROLI (Fundação Municipal do Meio Ambiente).  III - Representantes da sociedade civil organizada indicados pelas seguintes entidades:  a) ARLINDO DA SILVA (Poder Legislativo Municipal);  b) FERNANDA SAVIO OLIVEIRA (Câmara de Dirigentes Lojistas);  c) LUIZ ANTÔNIO DAMIANI DESTRO (CASAN - Companhia Catarinense de Água e Esgoto);  d) CARLOS CARDOSO FURTADO SOBRINHO (Polícia Civil);  e) CELITA SALVARO (Conselho Tutelar dos Direitos da Criança e do Adolescente);  f) ANDREY CLAUDIO TEIXEIRA (Polícia Militar);  g) JOÃO ROBERTO MELLER (Corpo de Bombeiros);  h) KARINA SPILLERE REMOR (Associação de Pais e Amigos dos Excepcionais);  i) VERA COLOMBO SPILLERE (AFAVE - Associação Feminina de Assistência Veneziana).Art. 2º Estas nomeações não acarretarão ônus aos cofres públicos.Art. 3º Este decreto entra em vigor na data de sua publicação.Art. 4º Revogam-se as disposições em contrário.Nova Veneza, SC, 28 de Julho de 2017.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalRegistrada e publicada, em 28 de Julho de 2017.OSNIR ANGELO GHELLERESecretario Municipal de Administração e FinançasRENATO PIERISecretario Municipal de Planejamento e Urbanismo
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

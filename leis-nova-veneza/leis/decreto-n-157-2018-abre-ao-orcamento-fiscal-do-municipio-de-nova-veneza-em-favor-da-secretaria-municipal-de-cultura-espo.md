@@ -1,0 +1,13 @@
+# DECRETO Nº 157, DE 28 DE MARÇO DE 2018.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 04/05/2018
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2018/16/157/decreto-n-157-2018-abre-ao-orcamento-fiscal-do-municipio-de-nova-veneza-em-favor-da-secretaria-municipal-de-cultura-esporte-e-turismo-credito-suplementar-no-valor-de-r-100000-00-por-conta-da-anulacao-de-saldos-de-dotacoes-orcamentarias-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 157, DE 28 DE MARÇO DE 2018. "ABRE AO ORÇAMENTO FISCAL DO MUNICÍPIO DE NOVA VENEZA, EM FAVOR DA SECRETARIA MUNICIPAL DE CULTURA, ESPORTE E TURISMO, CRÉDITO SUPLEMENTAR NO VALOR DE R$ 100.000,00, POR CONTA DA ANULAÇÃO DE SALDOS DE DOTAÇÕES ORÇAMENTÁRIAS, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso das atribuições que lhe confere o art. 53, inciso VII, da Lei Orgânica do Município, e em conformidade com a Lei Municipal nº 2.610, de 28 de março de 2018, DECRETA:Art. 1º Fica aberto ao Orçamento Fiscal do Município de Nova Veneza (Lei Municipal nº 2.593, de 27 de outubro de 2017), em favor da Secretaria Municipal de Cultura, Esporte e Turismo, crédito suplementar no valor de R$ 100.000,00 (cem mil reais), por conta da anulação de saldos de dotações orçamentárias (transposição), para atender a programação abaixo discriminada:Órgão 09: SECRETARIA DE CULTURA, ESPORTE E TUR.Unidade 01: Departamento de Cultura/Esporte e TurismoProj./Ativ. 2.021: Manutenção da Secretaria de Cultura, Esporte e TurismoAplicação: 3.3.50.00.00.00.00.00 0700 (___) - Transferência a Instituições Privadas Sem Fins Lucrativos...R$ 100.000,00TOTAL:...R$ 100.000,00Art. 2º Os recursos necessários à abertura do crédito de que trata o caput do art. 1º decorrem da anulação parcial das seguintes dotações orçamentárias:Órgão 09: SECRETARIA DE CULTURA, ESPORTE E TUR.Unidade 01: Departamento de Cultura/Esporte e TurismoProj./Ativ. 1.021: Construção e Ampliação de Equipamentos EsportivosAplicação: 4.4.90.00.00.00.00.00 0700 (70) - Aplicações Diretas...R$ 50.000,00Órgão 09: SECRETARIA DE CULTURA, ESPORTE E TUR.Unidade 01: Departamento de Cultura/Esporte e TurismoProj./Ativ. 2.022: Apoio ao Esporte AmadorAplicação: 3.3.90.00.00.00.00.00 0700 (77) - Aplicações Diretas...R$ 50.000,00TOTAL:...R$ 100.000,00Art. 3º Revogadas as disposições em contrário, este Decreto entra em vigor na data de sua publicação.Nova Veneza, SC, 28 de março de 2018.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicado e registrado em 28 de março de 2018.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

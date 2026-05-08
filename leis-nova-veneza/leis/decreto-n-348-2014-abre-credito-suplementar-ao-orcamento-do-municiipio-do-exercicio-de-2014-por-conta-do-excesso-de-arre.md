@@ -1,0 +1,13 @@
+# DECRETO Nº 348, DE 16 DE MAIO DE 2014.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 01/07/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2014/35/348/decreto-n-348-2014-abre-credito-suplementar-ao-orcamento-do-municiipio-do-exercicio-de-2014-por-conta-do-excesso-de-arrecadacao-de-convenio-com-o-estado-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 348, DE 16 DE MAIO DE 2014. "ABRE CRÉDITO SUPLEMENTAR AO ORÇAMENTO DO MUNICIÍPIO DO EXERCÍCIO DE 2.014 POR CONTA DO EXCESSO DE ARRECADAÇÃO DE CONVÊNIO COM O ESTADO E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, no uso de suas atribuições e de conformidade com os dispositivos da Lei Municipal Nº 2.311, de 02 de dezembro de 2013, combinada coma Lei Municipal Nº 2.355, de 11 de abril de 2014, DECRETA:Art. 1º Fica aberto crédito adicional suplementar por conta do excesso de arrecadação de recursos de convênio com o Estado do exercício em curso, conforme abaixo discriminado, destinados ao empenhamento de despesas de capital, no valor total de R$ 2.672.000,00 (dois milhões, seiscentos e setenta e dois mil reais):Órgão 10: SECRETARIA DE TRANSP., OBRAS E SERV. URBANOSProjeto 1.045 Pavimentação de Vias, Rodovias e LogradourosModalidade de Aplicação: 4.4.90.00.0120 (92) - Aplicações Diretas.......................R$ 2.672.000,00TOTAL...................................................................................R$ 2.672.000,00Art. 2º Os recursos para a abertura do crédito suplementar de que trata o artigo 1º correrão por conta do excesso de arrecadação provenientes do convênio para pavimentação de trechos das rodovias NVA 353 e NVA 461, firmado com o Governo Estadual, com contrapartida do Município, a serem creditados parceladamente em conta corrente vinculada ao convênio, correspondentes ao cronograma financeiro com abrangência no exercício em curso.  § 1º A despesa por conta da suplementação de que trata este Decreto fica condicionada e limitada à arrecadação efetiva dos recursos.  § 2º Os recursos correspondentes ao cronograma financeiro com abrangência no exercício de 2015 integrarão o orçamento daquele exercício, na forma da Lei Federal nº 4.320/64.Art. 3º Revogadas as disposições em contrário, este Decreto entra em vigor na data de sua publicação.Nova Veneza/SC, 16 de maio de 2014.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 16 de maio de 2014.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

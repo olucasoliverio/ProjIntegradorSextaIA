@@ -1,0 +1,13 @@
+# DECRETO Nº 510, DE 01 DE DEZEMBRO DE 2017.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 01/02/2017
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2017/51/510/decreto-n-510-2017-termino-de-contrato-temporario-de-servidores-da-secretaria-municipal-de-educacao-contratados-na-categoria-funcional-auxiliar-de-biblioteca
+
+## Texto Completo
+
+DECRETO Nº 510, DE 01 DE DEZEMBRO DE 2017.Termino de contrato temporário de Servidores da Secretaria Municipal de Educação, contratados na categoria funcional Auxiliar de Biblioteca.SERGIO ALBERTO SPILERE, Prefeito Municipal em Exercício de Nova Veneza, SC, usando das atribuições legais e de conformidade com a Lei Orgânica Municipal, Lei Municipal nº 1.416 de 29 de dezembro de 1999, DECRETA:Art. 1º Ficam demitidos por Término de Contrato Temporário os servidores contratados na categoria funcional de Auxiliar de Biblioteca, conforme abaixo discriminado, a partir de 14 de dezembro de 2017: ______________________________________________________________________________|               NOME              |      CARGO      |     DECRETO ADMISSÃO     ||=================================|=================|==========================||Bruna Warmling Minatto           |Aux. Biblioteca  |Decreto    nº    108,   de||                                 |                 |01/02/2017                ||---------------------------------|-----------------|--------------------------||Cintia Zanoni Furlan             |Aux. Biblioteca  |Decreto    nº    112,   de||                                 |                 |01/02/2017                ||---------------------------------|-----------------|--------------------------||Erica Mondardo Morelli Brogni    |Aux. Biblioteca  |Decreto    nº    187,   de||                                 |                 |01/03/2017                ||_________________________________|_________________|__________________________|expandir tabelaArt. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza/SC, de 01 de dezembro de 2017.SERGIO ALBERTO SPILEREPrefeito Municipal em ExercícioRegistrada e publicada, em 01 de dezembro de 2017.OSNIR ANGELO GHELLERESecretario Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

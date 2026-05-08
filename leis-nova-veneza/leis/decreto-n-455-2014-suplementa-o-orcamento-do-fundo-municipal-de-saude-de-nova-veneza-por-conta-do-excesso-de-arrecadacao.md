@@ -1,0 +1,13 @@
+# DECRETO Nº 455, DE 19 DE SETEMBRO DE 2014.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 26/06/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2014/46/455/decreto-n-455-2014-suplementa-o-orcamento-do-fundo-municipal-de-saude-de-nova-veneza-por-conta-do-excesso-de-arrecadacao-proveniente-de-repasse-do-governo-federal-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 455, DE 19 DE SETEMBRO DE 2014. "SUPLEMENTA O ORÇAMENTO DO FUNDO MUNICIPAL DE SAUDE DE NOVA VENEZA POR CONTA DO EXCESSO DE ARRECADAÇÃO PROVENIENTE DE REPASSE DO GOVERNO FEDERAL, E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, no uso de suas atribuições e em conformidade com os dispositivos da Lei Municipal Nº 2.311, de 02 de dezembro de 2013, combinada c/c Lei Municipal Nº 2.355, de 11 de abril de 2014, e Considerando os dispositivos contidos na LDO - Lei de Diretrizes Orçamentárias do exercício de 2014 - Lei Municipal Nº 2.291, de 11 de outubro de 2013, em especial o contido no artigo 47;Considerando os termos dos parágrafos 1, 2 e 3, do Prejulgado Nº 1794, resultante da Decisão Plenária Nº 1087/2006, do Tribunal de Contas do Estado de Santa Catarina, DECRETA:Art. 1º Fica aberto crédito adicional suplementar por conta do excesso de arrecadação, proveniente de repasse do Governo Federal, conforme abaixo discriminado, destinados ao empenhamento de despesas, no valor total de até R$ 90.000,00 (noventa mil reais):Órgão 13: SECRETARIA MUNICIPAL DE SAUDEProjeto 2.024: Manutenção da Rede Municipal de SaúdeModalidade de Aplicação: 3.3.90.00.00 0103 (12) - Aplicações Diretas.......................R$ 90.000,00TOTAL......................................................................................R$ 90.000,00Art. 2º O recurso para a abertura do crédito suplementar de que trata o art. 1º corresponde ao excesso de arrecadação proveniente de repasse do Governo Federal relativo a Atenção Básica creditado na conta corrente nº 6624001-6, agencia nº 4878 da Caixa Econômica Federal.Art. 3º Revogadas as disposições em contrário, este decreto entra em vigor na data de sua publicação.Nova Veneza/SC, 19 de setembro de 2014.EVANDRO LUIS GAVAPrefeito MunicipalPublicado e registrado em 19 de setembro de 2014.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

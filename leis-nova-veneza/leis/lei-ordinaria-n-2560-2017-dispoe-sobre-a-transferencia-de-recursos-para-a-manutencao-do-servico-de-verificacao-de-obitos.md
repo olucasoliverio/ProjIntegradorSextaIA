@@ -1,0 +1,13 @@
+# LEI Nº 2.560, DE 15 DE MAIO DE 2017.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 19/06/2017
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2017/256/2560/lei-ordinaria-n-2560-2017-dispoe-sobre-a-transferencia-de-recursos-para-a-manutencao-do-servico-de-verificacao-de-obitos-svo-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2.560, DE 15 DE MAIO DE 2017. "DISPÕE SOBRE A TRANSFERÊNCIA DE RECURSOS PARA A MANUTENÇÃO DO SERVIÇO DE VERIFICAÇÃO DE ÓBITOS - SVO E DÁ OUTRAS PROVIDÊNCIAS.".ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza/SC, no uso de suas atribuições legais previstas na Lei Orgânica Municipal, apresenta para apreciação da Câmara de Vereadores o seguinte:Art. 1º Fica autorizada a realização de Termo de Cooperação Técnica entre o Município de Nova Veneza e o Consórcio Intermunicipal de Saúde da AMREC - CISAMREC, destinado ao atendimento dos Serviços de Verificação de Óbitos - SVO.Art. 2º Para dar amparo às despesas do artigo anterior, o município repassará mensalmente ao CISAMREC o valor de R$ 0,12 (doze centavos de real) por habitante, conforme decisão do Conselho de Saúde do Consórcio, homologado pela Assembleia Geral do órgão.  Parágrafo único. Havendo homologação pela Assembleia do CISAMREC indicando um novo valor, este será ajustado mediante emissão de Ato do Chefe do Poder Executivo.Art. 3º Fica o Chefe do Poder Executivo Municipal autorizado abrir crédito especial com a Fonte de Recursos "720" - Recursos Ordinários, destinado ao empenhamento de despesas correntes no valor de R$ 20.000,00 (vinte mil reais), conforme abaixo especificado:Órgão 13: SECRETARIA DE SAÚDEProj./Ativ. 2.024: Manutenção da Rede Municipal de SaúdeModalidade de Aplicação: 3.3.93.00.00.0720  (-)Aplic. Dir. Dec. de Op. entre Órgãos....................................R$ 20.000,00Art. 4º Os recursos para a abertura do crédito especial de que trata o artigo 3º correrão por conta da anulação do seguinte crédito orçamentário:Órgão 13: SECRETARIA DE SAÚDEProj./Ativ. 2.024: Manutenção da Rede Municipal de SaúdeModalidade de Aplicação: 4.4.90.00.00.0720  (15) Aplicações Diretas....................................................R$ 20.000,00Art. 5º Revogando-se as disposições em contrário esta Lei entra em vigor na data de sua publicação.Nova Veneza, SC, 15 de maio de 2017.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 15 de maio de 2017.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

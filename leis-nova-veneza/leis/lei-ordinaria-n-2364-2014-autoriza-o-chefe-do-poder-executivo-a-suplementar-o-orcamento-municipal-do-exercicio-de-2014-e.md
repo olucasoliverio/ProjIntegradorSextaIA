@@ -1,0 +1,13 @@
+# LEI Nº 2364, DE 06 DE JUNHO DE 2014.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 16/04/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2014/237/2364/lei-ordinaria-n-2364-2014-autoriza-o-chefe-do-poder-executivo-a-suplementar-o-orcamento-municipal-do-exercicio-de-2014-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2364, DE 06 DE JUNHO DE 2014. "AUTORIZA O CHEFE DO PODER EXECUTIVO A SUPLEMENTAR O ORÇAMENTO MUNICIPAL DO EXERCÍCIO DE 2014 E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo Municipal autorizado a suplementar as dotações orçamentárias nas atividades abaixo discriminadas, por se apresentarem insuficientes para o empenhamento de despesas, limitado ao valor total de até R$ 90.000,00 (noventa mil reais), por conta da transposição de dotações, como segue:Órgão 09: SECRETARIA DE CULTURA, ESPORTE E TURISMOAtividade 1.021 Construção de Equipamentos EsportivosMod. de Aplicação 4.4.90.00.0.100 (69) - Aplicações Diretas................................R$ 20.000,00Órgão 10: SECRETARIA DE TRANSP. OBRAS E SERV. URBANOSAtividade 2.040 Manutenção da Secretaria de Obras e Serviços PúblicosMod. de Aplicação 3.3.90.00.0.0100 (104) - Aplicações Diretas..............................R$ 70.000,00TOTAL......................................................................................R$ 90.000,00Art. 2º Os recursos destinados às suplementações do artigo anterior correrão por conta da anulação das seguintes dotações orçamentárias:Órgão 02: GABINETE DO PREFEITOProjeto 1.005 Aquisição de Veículos e Equipamentos de EscritórioModalidade de Aplicação: 4.4.90.00.0100 (1) - Aplicações Diretas...........................R$ 40.000,00Órgão 11: SECRETARIA DE INDÚSTRIA E COMÉRCIOProjeto 1.056 Incentivos para Implantação e Implantação de IndústriasModalidade de Aplicação: 4.4.90.00.0100(114) - Aplicações Diretas..........................R$ 50.000,00TOTAL......................................................................................R$ 90.000,00Art. 3º Revogando-se as disposições em contrário, esta Lei entra em vigor na data de sua publicação.Nova Veneza/SC, 06 de junho de 2014.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 06 de junho de 2014.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

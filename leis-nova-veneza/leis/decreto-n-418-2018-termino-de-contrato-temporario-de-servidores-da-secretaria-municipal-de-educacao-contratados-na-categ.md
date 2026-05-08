@@ -1,0 +1,13 @@
+# DECRETO Nº 418, DE 03 DE DEZEMBRO DE 2018.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 14/02/2018
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2018/42/418/decreto-n-418-2018-termino-de-contrato-temporario-de-servidores-da-secretaria-municipal-de-educacao-contratados-na-categoria-funcional-auxiliar-de-servicos-gerais-i
+
+## Texto Completo
+
+DECRETO Nº 418, DE 03 DE DEZEMBRO DE 2018.Termino de contrato temporário de Servidores da Secretaria Municipal de Educação, contratados na categoria funcional Auxiliar de Serviços Gerais I.ELOIR MINATTO, Prefeito Municipal em Exercício de Nova Veneza, SC, usando das atribuições legais e de conformidade com o inciso IX, artigo 53, da Lei Orgânica Municipal, Leis Complementares 001 e 002 de 03 de abril de 2012, DECRETA:Art. 1º Ficam demitidos por Término de Contrato Temporário os servidores contratados na categoria funcional de Auxiliar de Serviços Gerais I, conforme abaixo discriminado, a partir de 14 de dezembro de 2018: ______________________________________________________________________________|               Nome              |      Cargo      |     Decreto admissão     ||=================================|=================|==========================||Alexandra Martins Fernandes      |Aux. Serv. Gerais|Decreto    nº    086,   de||                                 |I                |14/02/2018                ||---------------------------------|-----------------|--------------------------||Inês Angélica Somariva Mazzuco   |Aux. Serv. Gerais|Decreto    nº    085,   de||                                 |I                |14/02/2018                ||---------------------------------|-----------------|--------------------------||Marcia Regina Simão Camargo      |Aux. Serv. Gerais|Decreto    nº    294,   de||                                 |I                |02/08/2018                ||---------------------------------|-----------------|--------------------------||Marli Aparecida Ribeiro Thibes   |Aux. Serv. Gerais|Decreto    nº    388,   de||                                 |I                |07/11/2018                ||_________________________________|_________________|__________________________|expandir tabelaArt. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza/SC, de 03 de dezembro de 2018.ELOIR MINATTOPrefeito Municipal em ExercícioRegistrada e publicada, em 03 de dezembro de 2018.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

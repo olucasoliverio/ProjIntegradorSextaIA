@@ -1,0 +1,13 @@
+# LEI Nº 2359 DE 09 DE MAIO DE 2014.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 16/04/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2014/236/2359/lei-ordinaria-n-2359-2014-dispoe-sobre-a-criacao-e-instalacao-de-um-nucleo-industrial-localizado-no-bairro-picadao-municipio-de-nova-veneza-sc-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2359 DE 09 DE MAIO DE 2014. "DISPÕE SOBRE A CRIAÇÃO E INSTALAÇÃO DE UM NÚCLEO INDUSTRIAL, LOCALIZADO NO BAIRRO PICADÃO, MUNICÍPIO DE NOVA VENEZA/SC, E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, no uso de suas atribuições legais previstas na Lei Orgânica Municipal, bem como, diante do que expressa a Constituição Federal, em seu art. 30, incisos, I, II, VIII e IX, faz saber a todos os habitantes deste Município que a Câmara Municipal de Vereadores aprovou e ele sanciona a seguinte Lei.Art. 1º Fica criado um núcleo industrial, localizado no Bairro Picadão, tendo como perímetro as seguintes confrontações: Norte: 247,63 metros, com terras de José Osvaldo Damiani; Sul: 304,37 metros, com terras de Sônia Regina Damiani; Leste: 90,29 metros, com terras de Luci Ângela Damiani e a Oeste: 94,62 metros com a Rodovia SC 446.  Parágrafo Único - O perímetro descrito no caput deste artigo e representado no Anexo I - Mapa de Levantamento Topográfico, tem caráter apenas delimitativo de área para as atuais e futuras instalações de unidades industriais, devendo preservar os direitos sobre a propriedade privada, os bens particulares já existentes e a destinação diversa já aprovada pelos órgãos da Administração Municipal.Art. 2º O Chefe do Poder Executivo determinará a elaboração de projeto técnico do núcleo industrial criado por esta Lei, que deverá cumprir as regras estabelecidas no Plano Diretor do Município.Art. 3º Aplica-se ao núcleo industrial, criado por esta Lei, as disposições da legislação do uso e parcelamento do solo, direito à propriedade privada e o cumprimento da legislação ambiental vigente.;Art. 4º A regulamentação desta lei será feita, no que couber, através de Decreto do Poder Executivo, inclusive quanto a desapropriação de áreas.Art. 5º Esta lei entrará em vigor na data de sua publicação, revogadas as disposições em contrário.Nova Veneza, 09 de maio de 2014.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 09 de maio de 2014.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças O anexo encontra-se disponível, ainda, no Paço Municipal
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

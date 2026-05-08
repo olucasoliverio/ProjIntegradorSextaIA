@@ -1,0 +1,13 @@
+# DECRETO Nº 527, DE 02 DE DEZEMBRO DE 2014.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 24/06/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2014/53/527/decreto-n-527-2014-concede-progressao-por-qualificacao-profissional-ao-servidor-jose-carlos-policarpi-ocupante-da-categoria-funcional-de-contador
+
+## Texto Completo
+
+DECRETO Nº 527, DE 02 DE DEZEMBRO DE 2014.CONCEDE PROGRESSÃO POR QUALIFICAÇÃO PROFISSIONAL AO SERVIDOR JOSE CARLOS POLICARPI, OCUPANTE DA CATEGORIA FUNCIONAL DE CONTADOR.EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza, SC, usando das atribuições legais e de conformidade com o artigo 12 e artigo 13, item I, da Lei Municipal nº 1.228, de 09 de Novembro de 1.995 e Lei nº 1.830 de 26 de junho de 2007. DECRETA: Art. 1º Fica concedido ao servidor JOSÉ CARLOS POLICARPI ocupante da categoria funcional de CONTADOR, Progressão por Qualificação Profissional, conforme Certificado do Curso SINCOV, OBTVs e Rendimentosde Aplicação, Congresso Catarinense de Secretários de Finanças, Contadores Públicos e Contraladores Internos Municipais e Forum de Contabilidade Aplicada no Setor Público e Gestão Fiscal Responsável, Orientação sobre o sistema de prestação de contas de prefeitos, CG Compras Governamentais, Condutas Vedadas em ano eleitoral e Final de Mandato Municipal, XIII Ciclo de Estudos de Controle Público da Administração Municipal, Gestão Financeira e Orçamentária do Financiamento no Sistema Único de Assistência Social, SINCOV Prestação de Contas de Convênios e Contratos de Repasse, Seminário Estadual sobre os órgãos de controle na gestão municipal: Os órgãos oficiais e as conquistas da cidadania, SINCOV Inclusão de Projetos para Captação de Recursos, Ciclo Virtual de Estudos de Controle Público da Administração Municipal, Curso de Contabilidade Aplicada ao Setor Público,5º Congresso Catarinense de Secretários de Finanças, Contadores Públicos e Contraladores Internos Municipais, Curso sobre Planejamento Orçamentário e Lei de Responsável Fiscal (PPA, LDO, e LOA) em anexo, totalizando uma carga horária de 200 horas, consistindo movimentação da referência 52 para a referência 53 com vencimentos fixados em Lei.Art. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza - SC, 02 de dezembro de 2014.EVANDRO LUIS GAVAPrefeito MunicipalRegistrada e publicada, em 02 de novembro de 2014.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças O anexo encontra-se disponível, ainda, no Paço Municipal
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

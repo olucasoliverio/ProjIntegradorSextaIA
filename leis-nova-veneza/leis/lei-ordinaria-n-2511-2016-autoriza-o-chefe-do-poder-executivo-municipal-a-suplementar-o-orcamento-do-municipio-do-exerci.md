@@ -1,0 +1,13 @@
+# LEI Nº 2511, DE 20 DE ABRIL DE 2016.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 28/06/2016
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2016/252/2511/lei-ordinaria-n-2511-2016-autoriza-o-chefe-do-poder-executivo-municipal-a-suplementar-o-orcamento-do-municipio-do-exercicio-de-2016-por-conta-da-transposicao-de-dotacoes-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2511, DE 20 DE ABRIL DE 2016. "AUTORIZA O CHEFE DO PODER EXECUTIVO MUNICIPAL A SUPLEMENTAR O ORÇAMENTO DO MUNICÍPIO DO EXERCÍCIO DE 2016 POR CONTA DA TRANSPOSIÇÃO DE DOTAÇÕES E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, faz saber a todos os habitantes do Município que a Câmara Municipal de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Chefe do Poder Executivo Municipal autorizado suplementar a dotação orçamentária na Atividade abaixo discriminada, por se apresentarem insuficientes para o empenhamento de despesas, limitado ao valor total de R$ 100.000,00 (cem mil reais), por conta da transposição de dotações, como segue:Órgão 14: SECRETARIA DE ASSISTÊNCIA SOCIALProjeto 2.035 manutenção do CRASModalidade de Aplicação: 3.3.90.00. 0701 (11) - Aplicações Diretas.........R$ 80.000,00Órgão 14: SECRETARIA DE ASSISTÊNCIA SOCIALProjeto 2.062 Ações de Apoio a Criança e AdolescenteModalidade de Aplicação: 3.3.90.00. 0701 (17) - Aplicações Diretas.........R$ 20.000,00VALOR TOTAL...............................................................R$ 100.000,00Art. 2º Os recursos destinados às suplementações do art. 1º correrão por conta anulação dos seguintes créditos orçamentários:Órgão 14: SECRETARIA DE ASSISTÊNCIA SOCIALAtividade 1.036 Aquisição de Áreas e Construções de MoradiasModalidade de Aplicação 4.4.90.00. 0701 (01) - Aplicações Diretas..........R$ 30.000,00Atividade 1.038 Construção Multi. Uso Equip. e Infraestrutura SocialModalidade de Aplicação 4.4.90.00. 0701 (03) - Aplicações Diretas..........R$ 30.000,00Atividade 2.037 Manutenção dos ConvêniosModalidade de Aplicação 3.3.50.00. 0701 (13) - Aplicações Diretas..........R$ 20.000,00Atividade 2.039 Manutenção dos Programas de Formação Profissional e Geração.Modalidade de Aplicação 3.3.50.00. 0701 (14) - Aplicações Diretas..........R$ 20.000,00VALOR TOTAL...............................................................R$ 100.000,00Art. 3º Revogando-se as disposições em contrário esta Lei entra em vigor na data de sua publicação.Nova Veneza/SC, 20 de abril de 2016.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 20 de abril de 2016ROBERTO JOSÉ SÁVIO CAETANOSecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

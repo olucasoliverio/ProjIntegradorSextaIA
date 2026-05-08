@@ -1,0 +1,13 @@
+# LEI Nº 2.653, DE 07 DE NOVEMBRO DE 2018.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 31/01/2019
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2018/266/2653/lei-ordinaria-n-2653-2018-autoriza-o-poder-executivo-municipal-a-fomentar-a-realizacao-do-xxxi-torneio-sul-brasileiro-de-futebol-nao-profissional-que-sera-realizado-no-municipio-de-nova-veneza-sc-e-da-outras-providencias
+
+## Texto Completo
+
+LEI Nº 2.653, DE 07 DE NOVEMBRO DE 2018. "AUTORIZA O PODER EXECUTIVO MUNICIPAL A FOMENTAR A REALIZAÇÃO DO XXXI TORNEIO SUL-BRASILEIRO DE FUTEBOL NÃO PROFISSIONAL QUE SERÁ REALIZADO NO MUNICÍPIO DE NOVA VENEZA, SC, E DÁ OUTRAS PROVIDÊNCIAS."ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica o Poder Executivo Municipal autorizado a fomentar a realização do XXXI Torneio Sul-Brasileiro de Futebol Não Profissional de 2018, através do custeio de hospedagens, alimentação e demais despesas descritas no projeto de incentivo apresentado pelo Departamento Municipal de Esportes, limitado ao valor de R$ 16.000,00 (dezesseis mil reais).  Parágrafo único. O repasse dos valores poderá ser realizado diretamente para a entidade organizadora e/ou para os fornecedores descritos no projeto de incentivo financeiro, conforme orçamentos previamente apresentados, facultando ao Poder Executivo a elaboração de documentos próprios para fins de viabilização desse incentivo.Art. 2º O apoio de que trata o artigo 1º tem por objetivo exclusivo incentivar o desenvolvimento da prática desportiva no âmbito do Município de Nova Veneza, através de fomento ao evento esportivo de âmbito nacional, credenciado pela Federação Catarinense de Futebol, que será realizado nos dias 15, 16, 17 e 18 de novembro de 2018.Art. 3º As despesas decorrentes da execução da presente lei correrão por conta de dotações orçamentárias próprias, suplementadas se necessário.Art. 4º Esta lei entra em vigor na data de sua publicação, revogando-se as disposições em contrário.Nova Veneza, SC, 07 de novembro de 2018.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 07 de novembro de 2018.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

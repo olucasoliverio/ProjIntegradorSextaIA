@@ -1,0 +1,13 @@
+# DECRETO Nº 305, DE 14 DE ABRIL DE 2014.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 01/07/2015
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2014/31/305/decreto-n-305-2014-abre-credito-suplementar-ao-orcamento-do-fundo-municipal-de-saude-do-exercicio-de-2014-por-conta-do-superavit-financeiro-do-exercicio-anterior-nas-fontes-que-especifica-e-da-outras-providencias
+
+## Texto Completo
+
+DECRETO Nº 305, DE 14 DE ABRIL DE 2014. "ABRE CRÉDITO SUPLEMENTAR AO ORÇAMENTO DO FUNDO MUNICIPAL DE SAÚDE DO EXERCÍCIO DE 2.014 POR CONTA DO SUPERÁVIT FINANCEIRO DO EXERCÍCIO ANTERIOR, NAS FONTES QUE ESPECIFICA E DÁ OUTRAS PROVIDÊNCIAS."EVANDRO LUIS GAVA, Prefeito Municipal de Nova Veneza/SC, no uso de suas atribuições e de conformidade com os dispositivos da Lei Municipal nº 2.311, de 02 de dezembro de 2013, c/c a Lei Municipal nº 2.355, de 11 de abril de 2014, DECRETA:Art. 1º Fica aberto crédito adicional suplementar por conta do superávit financeiro do exercício anterior, conforme abaixo discriminado e identificado por fonte de recursos, destinados ao empenhamento de despesas correntes e de capital, no valor total de R$ 599.204,79 (quinhentos e noventa e nove mil, duzentos e quatro reais e setenta e nove centavos):Unidade: FUNDO MUNICIPAL DE SAÚDEÓrgão 13: Secretaria de SaúdeAtividade 2.024: Manutenção da Rede Municipal de SaúdeModalidade de Aplicação: 3.3.90.00.00.00 0105 (__) - Aplicações Diretas...................R$ 100.000,00Modalidade de Aplicação: 3.3.90.00.00.00 0106 (__) - Aplicações Diretas...................R$ 100.000,00Modalidade de Aplicação: 4.4.90.00.00.00 0106 (__) - Aplicações Diretas...................R$ 330.000,00Modalidade de Aplicação: 4.4.90.00.00.00 0110 (__) - Aplicações Diretas....................R$ 69.204,79TOTAL.....................................................................................R$ 599.204,79Art. 2º Os recursos para a abertura dos créditos suplementares de que trata o artigo 1º correrão por conta do superávit financeiro do exercício anterior correspondentes aos saldos creditados nas respectivas contas correntes do Fundo Municipal de Saúde na agência do Banco do Brasil de Nova Veneza.Art. 3º Revogadas as disposições em contrário, este Decreto entra em vigor na data de sua publicação.Nova Veneza, 14 de abril de 2014.EVANDRO LUIS GAVAPrefeito MunicipalPublicada e registrada em 14 de abril de 2014.CÉSAR AUGUSTUS BORTOLUZZISecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

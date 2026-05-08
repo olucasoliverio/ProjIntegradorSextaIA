@@ -1,0 +1,13 @@
+# DECRETO Nº 507, DE 01 DE DEZEMBRO DE 2017.
+
+**Tipo:** DECRETO Nº
+**Número:** 
+**Data:** 16/01/2017
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/decreto/2017/51/507/decreto-n-507-2017-termino-de-contrato-temporario-de-servidores-da-secretaria-municipal-de-educacao-contratados-na-categoria-funcional-auxiliar-de-servicos-gerais-i
+
+## Texto Completo
+
+DECRETO Nº 507, DE 01 DE DEZEMBRO DE 2017.Termino de contrato temporário de Servidores da Secretaria Municipal de Educação, contratados na categoria funcional Auxiliar de Serviços Gerais I.SERGIO ALBERTO SPILERE, Prefeito Municipal em Exercício de Nova Veneza, SC, usando das atribuições legais e de conformidade com o inciso IX, artigo 53, da Lei Orgânica Municipal, Leis Complementares 001 e 002 de 03 de abril de 2012, DECRETA:Art. 1º Ficam demitidos por Término de Contrato Temporário os servidores contratados na categoria funcional de Auxiliar de Serviços Gerais I, conforme abaixo discriminado, a partir de 08 de dezembro de 2017: ________________________________________________________________________________|               Nome               |       Cargo      |     Decreto admissão     ||==================================|==================|==========================||Claudete Buss                     |Aux.  Serv. Gerais|Decreto    nº    055,   de||                                  |I                 |16/01/2017                ||----------------------------------|------------------|--------------------------||Esmaira de Araujo Moraes          |Aux.  Serv. Gerais|Decreto    nº    054,   de||                                  |I                 |16/01/2017                ||----------------------------------|------------------|--------------------------||Ines Angelica Somariva Mazzuco    |Aux.  Serv. Gerais|Decreto    nº    172,   de||                                  |I                 |17/02/2017                ||__________________________________|__________________|__________________________|expandir tabelaArt. 2º Este decreto entra em vigor na data de sua publicação.Art. 3º Revogam-se as disposições em contrário.Nova Veneza/SC, de 01 de dezembro de 2017.SERGIO ALBERTO SPILEREPrefeito Municipal em ExercícioRegistrada e publicada, em 01 de dezembro de 2017.OSNIR ANGELO GHELLERESecretario Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.

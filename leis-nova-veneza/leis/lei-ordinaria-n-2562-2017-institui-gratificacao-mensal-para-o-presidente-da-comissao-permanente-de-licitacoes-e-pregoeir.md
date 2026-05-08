@@ -1,0 +1,15 @@
+# LEI Nº 2.562, DE 14 DE JUNHO DE 2017.
+
+**Tipo:** LEI Nº
+**Número:** 
+**Data:** 06/11/2023
+**Situação:** URL
+**URL:** https://leismunicipais.com.br/a/sc/n/nova-veneza/lei-ordinaria/2017/257/2562/lei-ordinaria-n-2562-2017-institui-gratificacao-mensal-para-o-presidente-da-comissao-permanente-de-licitacoes-e-pregoeiros-e-da-outras-providencias
+
+## Texto Completo
+
+Versão consolidada, com alterações até o dia 01/11/2023
+
+                        LEI Nº 2.562, DE 14 DE JUNHO DE 2017.(Revogada pela Lei nº 3044/2023) "INSTITUI GRATIFICAÇÃO MENSAL PARA O PRESIDENTE DA COMISSÃO PERMANENTE DE LICITAÇÕES E PREGOEIROS, E DÁ OUTRAS PROVIDÊNCIAS.".ROGÉRIO JOSÉ FRIGO, Prefeito Municipal de Nova Veneza, SC, no uso de suas atribuições legais, previstas na Lei Orgânica do Município, faz saber que a Câmara de Vereadores aprovou e ele sanciona a seguinte Lei:Art. 1º Fica instituída gratificação mensal a ser atribuída ao Presidente da Comissão Permanente de Licitação (CPL) e ao Pregoeiro, conforme disposições na Lei Federal nº 8.666/1993 e Lei Federal nº 10.520/2002.  Parágrafo único. A gratificação instituída no caput será concedida aos servidores públicos municipais em cargo de provimento efetivo ou em comissão.Art. 2º O valor da gratificação mensal a ser concedida ao servidor público municipal designado para cumprir mandato de Presidente da Comissão Permanente de Licitações (CPL) e ao Pregoeiro será de R$ 1.500,00 (um mil e quinhentos reais).  § 1º A gratificação será suspensa automaticamente nos casos de destituição do mandato ou da atribuição correspondente.  § 2º Caso o servidor seja nomeado simultaneamente como Presidente da CPL e Pregoeiro, deverá optar, expressamente, sob qual atribuição pretende perceber a gratificação de que trata esta Lei.  § 3º O valor da gratificação será reajustado na mesma data e com o mesmo índice da revisão geral anual dos servidores municipais.Art. 3º O servidor nomeado como suplente da Comissão Permanente de Licitações (CPL) ou suplente de Pregoeiro, quando designado para substituir seu respectivo titular fará jus a gratificação proporcionalmente ao período em que for nomeado para a substituição, ressalvado o disposto no § 1º do art. 2º.Art. 4º A gratificação disciplinada nesta Lei, em nenhuma hipótese será incorporada ao vencimento do servidor.Art. 5º As despesas decorrentes desta Lei correrão por conta das dotações orçamentárias pertinentes e serão classificadas de acordo com as normas previstas na Lei de Responsabilidade Fiscal.Art. 6º Esta Lei entra em vigor na data de sua publicação.Art. 7º Revogam-se as disposições em contrário.Nova Veneza, SC, 14 de junho de 2017.ROGÉRIO JOSÉ FRIGOPrefeito MunicipalPublicada e registrada em 14 de junho de 2017.OSNIR ÂNGELO GHELLERESecretário Municipal de Administração e Finanças
+
+                            Nota: Este texto não substitui o original publicado no Diário Oficial.
