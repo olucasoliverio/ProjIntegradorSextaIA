@@ -1,0 +1,14 @@
+.git
+.gitignore
+chrome-profile*
+links_cache.json
+__pycache__
+*.pyc
+.env
+.venv
+venv/
+leis-nova-veneza.db
+*.bat
+*.ps1
+inspect*.py
+inspect*.js

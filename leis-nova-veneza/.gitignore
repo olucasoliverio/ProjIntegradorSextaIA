@@ -26,3 +26,14 @@ package-lock.json
 # VS Code / OS
 .vscode/
 .DS_Store
+
+# Bancos de Dados e Embeddings
+leis-nova-veneza.db
+chroma_db/
+
+# Variaveis de Ambiente
+.env
+
+# Cache do Chrome/Scraper
+links_cache.json
+chrome-profile/
