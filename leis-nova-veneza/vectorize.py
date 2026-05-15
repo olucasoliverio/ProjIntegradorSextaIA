@@ -71,14 +71,29 @@ def main():
         is_separator_regex=False,
     )
 
-    # Processando todas as leis
-    leis_to_process = leis
+    # Chroma pede listas de IDs. Vamos continuar a partir da contagem atual
+    global_chunk_id = collection.count()
     
-    # Chroma pede listas de IDs
-    global_chunk_id = 0
+    # Descobre quais leis já foram inseridas para podermos pular
+    processed_leis = set()
+    try:
+        print("Verificando progresso anterior no banco vetorial...")
+        # collection.get() retorna tudo se não passar limite
+        existing_data = collection.get(include=["metadatas"])
+        if existing_data and existing_data["metadatas"]:
+            for meta in existing_data["metadatas"]:
+                if meta and "id_lei" in meta:
+                    processed_leis.add(meta["id_lei"])
+        print(f"Encontradas {len(processed_leis)} leis já processadas no ChromaDB. Elas serão ignoradas.")
+    except Exception as e:
+        print("Aviso ao verificar leis já processadas:", e)
 
-    for i, lei in enumerate(leis_to_process):
-        print(f"Processando lei {i+1}/{len(leis_to_process)}: {lei['titulo'][:50]}...")
+    for i, lei in enumerate(leis):
+        if lei['id'] in processed_leis:
+            # print(f"[{i+1}/{len(leis)}] Lei já processada. Pulando...") # Opcional: comentar para não poluir o terminal
+            continue
+            
+        print(f"Processando lei {i+1}/{len(leis)}: {lei['titulo'][:50]}...")
         
         texto_completo = lei['texto_completo']
         chunks = text_splitter.split_text(texto_completo)
